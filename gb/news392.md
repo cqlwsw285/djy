@@ -41,8 +41,23 @@
 <tr><td><h3><a href="https://github.com/asdfghy6/djy/blob/master/gb/19/9/24/n11542723.md#1" target="_blank">程晓容：付国豪获奖 良心记者坐牢 乱象何其多</a><br></h3><a href="https://github.com/asdfghy6/djy/blob/master/gb/19/9/24/n11542723.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/09/GettyImages-1052527862-1-1-150x120.jpg" align ="left"></a>付国豪受到的准官方肯定以及被操控的追捧，是大陆新闻界、网络和社会的怪现象。他在名义上的挂钩单位是一份民族主义小报，他的上级是紧跟党走、发党传声的喉舌干将。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年09月24日 6:16 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/asdfghy6/djy/blob/master/gb/19/9/24/n11542788.md#1" target="_blank">王丹：猪肉政治学</a><br></h3><a href="https://github.com/asdfghy6/djy/blob/master/gb/19/9/24/n11542788.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2007/11/711122112591680-150x120.jpg" align ="left"></a>最近，中国发生所谓的“二师兄之乱”。“二师兄”为《西游记》中的猪八戒，坊间因此戏称猪肉为“二师兄”。2019年4月开始，中国猪肉价格飙升，尽管北京当局紧急开展补救性行动，已经在29个省市出台猪肉补贴，但是从4月到7月，猪肉价格上涨18.2%，14.4%，21.1%和27%。实际情况恐怕比官方公布的数据更严重。问题严重到.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年09月24日 5:19 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/asdfghy6/djy/blob/master/gb/19/9/24/n11542862.md#1" target="_blank">九州：解析中国模式（上）</a><br></h3><a href="https://github.com/asdfghy6/djy/blob/master/gb/19/9/24/n11542862.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2010/11/1011020126021849-150x120.jpg" align ="left"></a>在过去四十来年间，由于文革造成的经济崩溃，中国经济被迫转型，开放国门，伴随着全球化的进程，经济得到迅猛发展，使中国一跃成为世界第二大经济体。专家学者们纷纷试图定义并解读中国经济转型这一现象。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年09月24日 3:43 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/asdfghy6/djy/blob/master/gb/19/9/24/n11542692.md#1" target="_blank">袁斌：“人民幸福生活是最大的人权”中国人有吗？</a><br></h3><a href="https://github.com/asdfghy6/djy/blob/master/gb/19/9/24/n11542692.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2015/06/1506080915591770-150x120.jpg" align ="left"></a>9月22日，中共国务院新闻办发表了题为《为人民谋幸福：新中国人权事业发展70年》的白皮书。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年09月24日 3:23 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/asdfghy6/djy/blob/master/gb/19/6/1/n11293478.md#1" target="_blank">【征文】李有甫：中华传统武术的传承与发展</a><br></h3><a href="https://github.com/asdfghy6/djy/blob/master/gb/19/6/1/n11293478.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2009/08/908072325061875-150x120.jpg" align ="left"></a>武德是道德与武艺共同的体现，所以对道的信仰和修炼就非常重要。轩辕黄帝修炼大道，他不仅发明了枪法（干戈），黄帝还留下了著名的《黄帝内经》，其中首要讲了如何修炼大道，后世才有养生之道的学说和内外兼修的内家拳。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年09月24日 2:00 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/asdfghy6/djy/blob/master/gb/19/9/26/n11547865.md#1" target="_blank">千瑞：真中国 假中国</a><br></h3>朋友，在你的心中——
+你可知道有一个真中国？
+你可想到有一个假中国？
+假中国不等于真中国。
+真中国是中华的中国。
+假中国是中共的中国。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年09月26日 4:08 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/asdfghy6/djy/blob/master/gb/19/9/26/n11547499.md#1" target="_blank">郑纯清：红朝人民幸福白皮书解读</a><br></h3>山寨熬古稀，贫穷最美丽。
+人民特幸福，骗字书白皮。
+幸福是什么，红朝唠哄嗑。
+大脑被洗残，色盲党特色。
+民意党代言，代言随便说。
+初心谋民福，人间天堂筑。
+三大差别消，分配按需要。
+物资极丰富，人人当富豪。
+利诱加逼迫，梦都一起做。
+造反闹革命，跟党甘牺牲。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年09月26日 3:59 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/asdfghy6/djy/blob/master/gb/19/9/26/n11547800.md#1" target="_blank">新洲：从婴儿“被断奶”看中共对善良民众的欺凌加害</a><br></h3>而山东惠民县发生的婴儿“被断奶”案例，只是当今大陆乱象中的一例而已，它揭示的不仅仅是警察的冷血冷酷，折射的是执法者的残忍心态，体现的是大陆法治的溃退黑暗，见证的是中共迫害善良的阴毒邪恶。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年09月26日 3:57 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/asdfghy6/djy/blob/master/gb/19/9/26/n11547362.md#1" target="_blank">洪微：川普高调摊牌? 北京“十一”更恐慌</a><br></h3>9月24日，川普在联合国大会演讲，对北京“火力全开”。川普在发言中，进一步阐明了，美国纠正与中国不平衡贸易的决心不可动摇，并全面展示美国实力，高调向北京摊牌。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年09月26日 2:43 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/asdfghy6/djy/blob/master/gb/19/9/25/n11545682.md#1" target="_blank">桂南福：香港潮涌北</a><br></h3>一百两百万兮反送中
 扶老携幼兮冒雨共
@@ -65,13 +80,5 @@
 无神邪论灭信仰。
 罪恶滔天反人类，
 活摘器官惊上苍。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年09月25日 5:39 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/asdfghy6/djy/blob/master/gb/19/9/24/n11542394.md#1" target="_blank">云松：七律 红朝阅兵有感</a><br></h3>红朝耀武四邻惊，
-一片秋霜染北京。
-劳师动众操正步，
-杯弓蛇影竟空城。
-出门恐惧查车辆，
-入厕荒唐报实名。
-垂死疯狂挑世界，
-人心尽失一朝崩。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年09月24日 11:17 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/asdfghy6/djy/blob/master/gb/news392.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/asdfghy6/djy/blob/master/gb/news392_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/asdfghy6/djy/blob/master/gb/news392_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/asdfghy6/djy/blob/master/gb/news392_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/asdfghy6/djy/blob/master/gb/news392_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/asdfghy6/djy/blob/master/gb/news392_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/asdfghy6/djy/blob/master/gb/news392_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/asdfghy6/djy/blob/master/gb/news392_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/asdfghy6/djy/blob/master/gb/news392_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/asdfghy6/djy/blob/master/gb/news392_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/asdfghy6/djy/blob/master/gb/news392_2.md#1">下一页</a></h3></td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/asdfghy6/djy/blob/master/gb/news392.md#1<br><a href="https://github.com/asdfghy6/djy/blob/master/gb/news392.md#1"><img src="http://www.hehaibao.com/qr/index.php?m=1&e=L&p=10&t=&d=https://github.com/asdfghy6/djy/blob/master/gb/news392.md%231" title="分享本文章"></a><br>原文地址： <a href="http://www.epochtimes.com/gb/news392.htm">http://www.epochtimes.com/gb/news392.htm</a>    （国内需<a href="https://git.io/JesJV">下载翻墙软件</a>才能访问）</p>
