@@ -23,6 +23,12 @@
 听证会非常清楚香港的人权严重恶化的紧急状况，了解了香港年轻一代.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年09月27日 10:46 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/asdfgt5/djy/blob/master/gb/19/9/26/n11549037.md#1" target="_blank">周晓辉：川普政府连送大礼 中共十一强颜欢笑</a><br></h3><a href="https://github.com/asdfgt5/djy/blob/master/gb/19/9/26/n11549037.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/09/GettyImages-1040029704-600x400-1-150x120.jpg" align ="left"></a>一句话，中共就是典型的色厉内荏。大概是害怕收到更多的大礼，此时的中共暂时收敛了此前大骂美国的无赖嘴脸。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年09月27日 5:24 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/asdfgt5/djy/blob/master/gb/19/9/26/n11547906.md#1" target="_blank">石铭：没有共产邪灵的新纪元将会到来</a><br></h3><a href="https://github.com/asdfgt5/djy/blob/master/gb/19/9/26/n11547906.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2018/10/20181002-hsichiao-hk-07-150x120.jpg" align ="left"></a>末日来临中的中共在心惊胆颤中将要度过最后一个国殇日，这个国殇日名曰“七十大庆”，某中共党魁还要耗费大量民脂民膏举行盛大阅兵，风光一番，以显要中共的所谓强大、威风。“七十”反过来读是“十七”，谐音不就是“死期”吗？中共的死期到矣！......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年09月26日 4:33 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/asdfgt5/djy/blob/master/gb/19/9/28/n11552356.md#1" target="_blank">李春草：青玉案?中共特务</a><br></h3>妖风吹来十万特
+躲在香港射冷箭
+夜静无声似鬼潜
+盗取密件
+盯梢要员
+暗杀超极限......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年09月28日 4:11 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/asdfgt5/djy/blob/master/gb/19/9/27/n11550174.md#1" target="_blank">伍新：死往死折腾</a><br></h3>里外暗暗通，时地点点清。
 蒙面警棍黑，光天毒手猛。
 绝望押绝招，法徒鲜血涌。
@@ -66,15 +72,5 @@
 假中国不等于真中国。
 真中国是中华的中国。
 假中国是中共的中国。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年09月26日 4:08 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/asdfgt5/djy/blob/master/gb/19/9/26/n11547499.md#1" target="_blank">郑纯清：红朝人民幸福白皮书解读</a><br></h3>山寨熬古稀，贫穷最美丽。
-人民特幸福，骗字书白皮。
-幸福是什么，红朝唠哄嗑。
-大脑被洗残，色盲党特色。
-民意党代言，代言随便说。
-初心谋民福，人间天堂筑。
-三大差别消，分配按需要。
-物资极丰富，人人当富豪。
-利诱加逼迫，梦都一起做。
-造反闹革命，跟党甘牺牲。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年09月26日 3:59 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/asdfgt5/djy/blob/master/gb/news392.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/asdfgt5/djy/blob/master/gb/news392_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/asdfgt5/djy/blob/master/gb/news392_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/asdfgt5/djy/blob/master/gb/news392_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/asdfgt5/djy/blob/master/gb/news392_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/asdfgt5/djy/blob/master/gb/news392_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/asdfgt5/djy/blob/master/gb/news392_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/asdfgt5/djy/blob/master/gb/news392_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/asdfgt5/djy/blob/master/gb/news392_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/asdfgt5/djy/blob/master/gb/news392_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/asdfgt5/djy/blob/master/gb/news392_2.md#1">下一页</a></h3></td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/asdfgt5/djy/blob/master/gb/news392.md#1<br><a href="https://github.com/asdfgt5/djy/blob/master/gb/news392.md#1"><img src="http://www.hehaibao.com/qr/index.php?m=1&e=L&p=10&t=&d=https://github.com/asdfgt5/djy/blob/master/gb/news392.md%231" title="分享本文章"></a><br>原文地址： <a href="http://www.epochtimes.com/gb/news392.htm">http://www.epochtimes.com/gb/news392.htm</a>    （国内需<a href="https://git.io/JesJV">下载翻墙软件</a>才能访问）</p>
