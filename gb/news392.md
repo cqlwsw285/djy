@@ -3,7 +3,7 @@
 <tr><td><h3><a href="https://github.com/asdfgt5/djy/blob/master/gb/19/10/2/n11561825.md#1" target="_blank">李乐：莫言率土皆赤化，且看香江有俊才</a><br></h3><a href="https://github.com/asdfgt5/djy/blob/master/gb/19/10/2/n11561825.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/1910010204312188-600x400-1-1-150x120.jpg" align ="left"></a>今年的十一国殇是如此的不同。
 
 在北京观礼台，血帜遮天蔽日，锣鼓喧天，而在香港，却群情激愤，满城尽带黑乌甲；在北京的大礼堂里，莺歌燕舞，推杯换盏，而在香港，万人齐哀，却又众志成城；在北京天安门城楼前，巨大的毛泽东头像俯视着芸芸众生，而在香港的街头，电线杆，车站牌上，他猩红的头像被赫然打上了纳粹的字样。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月02日 11:48 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/asdfgt5/djy/blob/master/gb/19/10/2/n11561719.md#1" target="_blank">骆克仁：中共“十一”阅兵与美军航空展</a><br></h3><a href="https://github.com/asdfgt5/djy/blob/master/gb/19/10/2/n11561719.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/IMG_0494-150x120.jpg" align ="left"></a>
+<tr><td><h3><a href="https://github.com/asdfgt5/djy/blob/master/gb/19/10/2/n11561719.md#1" target="_blank">骆克仁：中共“十一”阅兵与美军航空展</a><br></h3><a href="https://github.com/asdfgt5/djy/blob/master/gb/19/10/2/n11561719.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/IMG_1130-150x120.jpg" align ="left"></a>
 
 中共“十一”阅兵，北京如临大敌，几个礼拜前就开始戒严，网路上传说北京人连上个厕所都得“实名制”；不可思义的还有市民“被旅游”、“禁止旅游”；只要是可能说句“实话”的人，北京政府都得小心看管。因为这是中共窃政七十年的大日子，可不能丢了面子。
 
