@@ -18,7 +18,7 @@
 #### 本项目短网址： https://git.io/dajiyan
 <img src="https://raw.githubusercontent.com/asdfgt5/djy/master/gb/300/djy.jpg" />  
 
-#### 看《大纪元》更多新闻请下载 [一键翻墙软件](https://github.com/asdfgt5/2/edit/master/README.md?fldf#1)
+#### 看《大纪元》更多新闻请下载 [一键翻墙软件](https://github.com/asdfgt5/www/edit/master/README.md?fldf#1)
 ----
 
 ##### 在浏览器中输入短网址 或使用微信、支付宝等二维码工具扫描二维码打开页面, 点击右上角"...", 在弹出菜单中点击“在浏览器打开”； 若网页被举报禁止访问，请点击“恢复申请访问”，将链接复制并粘贴到浏览器中打开（请不要使用QQ或360浏览器）
