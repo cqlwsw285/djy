@@ -1,1 +1,1 @@
-[attach]d:\dropbox\git\djy\readme.md
+{{attach:D:\Dropbox\git\djy\README.md}}
