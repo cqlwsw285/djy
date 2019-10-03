@@ -1,5 +1,5 @@
 <a name="1" target="_blank"></a>
-<img src="https://raw.githubusercontent.com/qddt69/www/master/t/fq4.jpg"><br>
+<img src="https://raw.githubusercontent.com/qddt69/wwww/master/t/fq4.jpg"><br>
 
 ----
 
