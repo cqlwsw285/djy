@@ -10,16 +10,10 @@
 #### 本文转自<a href="http://www.epochtimes.com">大纪元</a>（国内需用<a href="https://git.io/JesJV">翻墙软件</a>才能访问）
 > 原文：<a href="http://www.epochtimes.com/gb/about-djy.htm"></a>
 #### 下载<a href="https://git.io/JesJV">翻墙软件</a>浏览<a href="http://www.epochtimes.com">大纪元</a>相关新闻：
-> <li><a href="http://www.epochtimes.com/gb/19/8/24/n11474852.htm">澳洲房产拥有率下降 年轻人成投资房主力</a></li>
-> <li><a href="http://www.epochtimes.com/gb/19/8/22/n11469699.htm">香港富人出走 申请澳洲投资移民签证者增加</a></li>
-> <li><a href="http://www.epochtimes.com/gb/19/7/18/n11391997.htm">澳洲上财年退休金投资回报十佳基金揭晓</a></li>
-> <li><a href="http://www.epochtimes.com/gb/19/7/6/n11368539.htm">调查 中国买家对澳洲房产投资兴趣下降</a></li>
-> <li><a href="http://www.epochtimes.com/gb/19/6/26/n11346823.htm">重大投资者签证开设以来 为澳洲带来逾百亿</a></li>
-> <li><a href="http://www.epochtimes.com/gb/19/5/18/n11265946.htm">澳洲税务局 将严查投资房报税</a></li>
-> <li><a href="http://www.epochtimes.com/gb/19/3/7/n11095268.htm">澳洲投资500万打广告 吸引年轻中国游客</a></li>
-> <li><a href="http://www.epochtimes.com/gb/19/3/6/n11092919.htm">澳洲女性不善投资 更喜欢现金“安全感”</a></li>
-> <li><a href="http://www.epochtimes.com/gb/19/2/28/n11078612.htm">澳洲定存投资 方便可靠最重要</a></li>
-> <li><a href="http://www.epochtimes.com/gb/19/2/2/n11019547.htm">房产分析师 2019年澳洲值得投资的五个区</a></li>
+> <li><a href="http://www.epochtimes.com/gb/18/8/6/n10618914.htm">南投民宿早餐竞赛 业者名厨学子拼创意</a></li>
+> <li><a href="http://www.epochtimes.com/gb/18/7/11/n10554836.htm">世界最惊险民宿离岸55公里 汪洋大海做后院</a></li>
+> <li><a href="http://www.epochtimes.com/gb/16/10/6/n8371716.htm">访日游客激增  引发日本民宿投资热</a></li>
+> <li><a href="http://www.epochtimes.com/gb/16/7/25/n8135206.htm">民宿房客从哪来？订房网说明会告诉你</a></li>
 
 #### 下载<a href="https://git.io/JesJV">翻墙软件</a>浏览<a href="http://www.epochtimes.com">大纪元</a>热门新闻：
 > <li><a href="http://www.epochtimes.com/gb/19/10/1/n11560743.htm">百度浏览器正式停止服务 高管现离职潮</a></li>
