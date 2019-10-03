@@ -42,22 +42,22 @@
 <hr><h1>聚缘阁代理</h1>
 <p>网址测试正常，欢迎使用</p>
 <p><strong>本站固定域名<a href="https://git.io/juyuange" rel="nofollow">https://git.io/juyuange</a></strong></p>
-<p>
+<h3>
 <a id="user-content-聚缘阁高速入口" class="anchor" href="#%E8%81%9A%E7%BC%98%E9%98%81%E9%AB%98%E9%80%9F%E5%85%A5%E5%8F%A3" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a><a href="https://juyuange.gaeww3.ga/?id=2" rel="nofollow">聚缘阁高速入口</a><img src="https://raw.githubusercontent.com/hao369/a/master/jyg.gif" alt="">
-</p>
-<p>
+</h3>
+<h3>
 <a id="user-content-动态网高速入口" class="anchor" href="#%E5%8A%A8%E6%80%81%E7%BD%91%E9%AB%98%E9%80%9F%E5%85%A5%E5%8F%A3" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a><a href="https://juyuange.gaeww3.ga/?id=2" rel="nofollow">动态网高速入口</a><img src="https://raw.githubusercontent.com/hao369/a/master/jygdl.gif" alt="">
-</p>
-<p>
+</h3>
+<h3>
 <a id="user-content-新唐人高速入口" class="anchor" href="#%E6%96%B0%E5%94%90%E4%BA%BA%E9%AB%98%E9%80%9F%E5%85%A5%E5%8F%A3" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a><a href="https://juyuange.gaeww3.ga/?id=5" rel="nofollow">新唐人高速入口</a>
-</p>
-<p>
+</h3>
+<h3>
 <a id="user-content-大纪元高速入口" class="anchor" href="#%E5%A4%A7%E7%BA%AA%E5%85%83%E9%AB%98%E9%80%9F%E5%85%A5%E5%8F%A3" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a><a href="https://juyuange.gaeww3.ga/?id=7" rel="nofollow">大纪元高速入口</a>
-</p>
-<p>
+</h3>
+<h3>
 <a id="user-content-退党网高速入口" class="anchor" href="#%E9%80%80%E5%85%9A%E7%BD%91%E9%AB%98%E9%80%9F%E5%85%A5%E5%8F%A3" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a><a href="https://juyuange.gaeww3.ga/?id=8" rel="nofollow">退党网高速入口</a>
-</p>
-<p>
+</h3>
+<h3>
 <hr>
 <h1><p><strong>中国人权</strong></p></h1>
 <p><a target="_blank" href="https://github.com/asdfgt5/ntdtv/blob/master/gb/prog1135_1.md?fldfasdfgt5#1">新唐人大陆人权</a></p>
@@ -117,4 +117,4 @@
 <img src="https://raw.githubusercontent.com/asdfgt5/1/master/t/42.jpg"><br>
 <img src="https://raw.githubusercontent.com/asdfgt5/1/master/t/43.jpg"><br>
 <img src="https://raw.githubusercontent.com/asdfgt5/1/master/t/44.jpg"><br>
-<p><p><strong>中共与道义良知为敌，在这场残酷打压中把法制以至道德伦理都推向崩溃的边缘，民心丧尽，天怒人怨！人们终于觉醒：要结束这近百年民族浩劫，重建社会道德，唤醒国人良知，全民退出中共是拯救中华民族的唯一出路。中共活摘器官曝光后震惊世界，大纪元社论《九评共产党》以无可辩驳的事实揭示中共这个"西来幽灵"的真面目，它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天谴！中国人从小加入少先队时就在血旗下宣誓要把生命献给它，在此"天灭中共"之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过3亿人三退，全民<a href="https://s3-us-west-1.amazonaws.com/ogaten/show.htm?ogQuit.aspx&from=852" rel="nofollow">退出中共</a>，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p></p>
+<h3><p><strong>中共与道义良知为敌，在这场残酷打压中把法制以至道德伦理都推向崩溃的边缘，民心丧尽，天怒人怨！人们终于觉醒：要结束这近百年民族浩劫，重建社会道德，唤醒国人良知，全民退出中共是拯救中华民族的唯一出路。中共活摘器官曝光后震惊世界，大纪元社论《九评共产党》以无可辩驳的事实揭示中共这个"西来幽灵"的真面目，它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天谴！中国人从小加入少先队时就在血旗下宣誓要把生命献给它，在此"天灭中共"之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过3亿人三退，全民<a href="https://s3-us-west-1.amazonaws.com/ogaten/show.htm?ogQuit.aspx&from=852" rel="nofollow">退出中共</a>，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p></h3>
