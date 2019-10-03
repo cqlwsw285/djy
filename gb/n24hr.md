@@ -798,6 +798,17 @@ JP Auto Body是湾区大型华人修车厂，十多年来成功修车近两万�
 <tr><td><h3><a href="https://github.com/qddt69/djy/blob/master/gb/19/10/1/n11558489.md#1" target="_blank">加美拟携手开发稀土资源 对抗中共出口控制</a><br></h3><a href="https://github.com/qddt69/djy/blob/master/gb/19/10/1/n11558489.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/shutterstock_272582429-150x120.jpg" align ="left"></a>加拿大和美国正在草拟的计划显示，为了减少对中国生产的稀土等关键矿物的依赖，加美将联手采取行动。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月01日 9:31 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/qddt69/djy/blob/master/gb/19/9/30/n11558456.md#1" target="_blank">阔别荧屏十年 李嘉欣复出演“杨贵妃”</a><br></h3><a href="https://github.com/qddt69/djy/blob/master/gb/19/9/30/n11558456.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/li-jiaxin-_meitu_1-150x120.jpg" align ="left"></a>49岁的港姐冠军李嘉欣，在阔别荧屏10年之后，近期以大陆综艺节目《演技派》中的“杨贵妃”一角复出。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月01日 9:23 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/qddt69/djy/blob/master/gb/19/9/30/n11555688.md#1" target="_blank">【艺术趣闻】安格尔的模特儿</a><br></h3><a href="https://github.com/qddt69/djy/blob/master/gb/19/9/30/n11555688.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/09/Le_Voeu_de_Louis_XIII-150x120.jpg" align ="left"></a>《路易十三的宣誓》在巴黎大获成功，只是，从来没有人猜疑过圣母的模特儿身份是谁！......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月01日 9:15 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/qddt69/djy/blob/master/gb/19/10/3/n11564894.md#1" target="_blank">昆州公务员海外旅行 一年用掉500万澳元</a><br></h3>根据最新数据，澳大利亚昆州政府部门的公务员过去12个月内共花掉500万澳元的国际旅行费用。其中3名高级官员在为期两周的美洲之行中，总共花费了10.7万元。
+
+昆州财政公司（QTC）是政府企业中，国际旅费开销第二高的机构。作为昆州的中心融资机构，其16名官员在世界各地进行的各种活动和会议中，花费了45.8万元。
+
+.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月03日 5:10 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/qddt69/djy/blob/master/gb/19/10/3/n11565092.md#1" target="_blank">有外星人？科学家：两年会在火星找到证据</a><br></h3>美国国家航空航天局（NASA）首席科学家格林（Jim Green）预测，未来两年内NASA将会在火星找到外星生命证据。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月03日 5:09 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/qddt69/djy/blob/master/gb/19/10/3/n11564834.md#1" target="_blank">迎“双十”节 悉尼举行第三届国庆杯篮球赛</a><br></h3>悉尼侨界为庆祝中华民国108 年生日，9月28日在 Ryde Community Sports Centre 举办“2019年国庆杯篮球锦标赛”。
+
+驻悉尼台北经济文化办事处王雪虹处长、悉尼华侨文教服务中心吴春芳主任、威乐比市童伊品市议员（Christine Tuon）及众多侨领亲临现场为选手加油打气。
+
+聂晓.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月03日 5:08 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/qddt69/djy/blob/master/gb/19/10/3/n11564848.md#1" target="_blank">墨尔本天气反常 气温一分钟内骤降4度</a><br></h3>周四，一股冷空气穿越墨尔本，使得该市气温在一分钟内骤降4度。
 
 中午时分，墨尔本的气温曾达到29.7摄氏度，但之后一股来自西南方向的冷空气穿过市中心，驱散了高温。气象局周四下午说：“一分钟内，墨尔本的气温下降了4度，之后再降7度。”
