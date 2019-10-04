@@ -1,7 +1,7 @@
 <a name="1" id="1" target="_blank"></a><span id="1"></span>
 <table border="0"><tr><td colspan="2" VALIGN=TOP><a href="https://github.com/qddt69/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qddt69/www/master/t/djy/1.jpg" title="大纪元"></a><a href="https://github.com/qddt69/djy/blob/master/gb/n24hr.md#1"><img src="https://raw.githubusercontent.com/qddt69/www/master/t/djy/3.jpg" title="国际新闻"></a><a href="https://github.com/qddt69/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qddt69/www/master/t/djy/4.jpg" title="大陆新闻"></a><a href="https://github.com/qddt69/djy/blob/master/gb/news392.md#1"><img src="https://raw.githubusercontent.com/qddt69/www/master/t/djy/5.jpg" title="评论"></a><a href="https://github.com/qddt69/djy/blob/master/gb/news2007.md#1"><img src="https://raw.githubusercontent.com/qddt69/www/master/t/djy/6.jpg" title="文化"></a><a href="https://github.com/qddt69/djy/blob/master/gb/news2008.md#1"><img src="https://raw.githubusercontent.com/qddt69/www/master/t/djy/7.jpg" title="生活"></a><a href="https://github.com/qddt69/djy/blob/master/gb/ncyule.md#1"><img src="https://raw.githubusercontent.com/qddt69/www/master/t/djy/8.jpg" title="娱乐"></a><a href="https://github.com/qddt69/djy/blob/master/gb/nsc1002.md#1"><img src="https://raw.githubusercontent.com/qddt69/www/master/t/djy/9.jpg" title="健康"><a href="https://www.youlucky.com"><img src="https://raw.githubusercontent.com/qddt69/www/master/t/djy/10.jpg" title="购物"></a><a href="https://www.supportepoch.org/donation?utm_medium=epochtimes&utm_source=referral&utm_campaign=donate_button_djyhomepage"><img src="https://raw.githubusercontent.com/qddt69/www/master/t/djy/12.jpg" title="捐款"></a></td></tr>
 <tr><td colspan="2" VALIGN=TOP><a target="_blank" href="https://git.io/fjCRf">社论</a> | <a target="_blank" href="https://github.com/qddt69/djy/blob/master/gb/nf5657.md#1">三退</a> | <a target="_blank" href="https://github.com/qddt69/djy/blob/master/gb/nf6123.md#1">诉江</a> | <a target="_blank" href="https://github.com/qddt69/djy/blob/master/gb/nf1176117.md#1">中共卖国</a> | <a target="_blank" href="https://github.com/qddt69/djy/blob/master/gb/nf5773.md#1">贪腐淫乱 | <a target="_blank" href="https://github.com/qddt69/djy/blob/master/gb/nf1176115.md#1">窜改历史</a> | <a target="_blank" href="https://github.com/qddt69/djy/blob/master/gb/nf1176107.md#1">党魁画皮</a> | <a target="_blank" href="https://github.com/qddt69/djy/blob/master/gb/nf1320400.md#1">中共间谍</a> | <a target="_blank" href="https://github.com/qddt69/djy/blob/master/gb/nf1176114.md#1">破坏传统</a> | <a target="_blank" href="https://github.com/qddt69/djy/blob/master/gb/nf5287.md#1">恶贯满盈</a> | <a target="_blank" href="https://github.com/qddt69/djy/blob/master/gb/ncid278.md#1">人权</a> | <a target="_blank" href="https://github.com/qddt69/djy/blob/master/gb/nf1176111.md#1">迫害</a> | <a target="_blank" href="https://github.com/qddt69/djy/blob/master/gb/nf1235328.md#1">书籍</a> | <a target="_blank" href="https://github.com/qddt69/fq/blob/master/README.md?zsrh#1">翻墙</a></p><p><a target="_blank" href="https://github.com/qddt69/djy/blob/master/gb/nf5562.md#1">伪火</a> | <a target="_blank" href="https://github.com/qddt69/djy/blob/master/gb/nf4378.md#1">问答</a> | <a target="_blank" href="https://github.com/qddt69/djy/blob/master/gb/nf5792.md#1">剖析</a> | <a target="_blank" href="https://github.com/qddt69/djy/blob/master/gb/nf5735.md#1">两岸比对</a> | <a target="_blank" href="https://github.com/qddt69/djy/blob/master/gb/nf6119.md#1">各国褒奖</a> | <a target="_blank" href="https://github.com/qddt69/djy/blob/master/gb/nf6120.md#1">民众声援</a> | <a target="_blank" href="https://github.com/qddt69/djy/blob/master/gb/nf1188594.md#1">难忘记忆</a> | <a target="_blank" href="https://github.com/qddt69/djy/blob/master/gb/nf3180.md#1">海外弘传</a> | <a target="_blank" href="https://github.com/qddt69/djy/blob/master/gb/nf5410.md#1">万人上访</a> | <a target="_blank" href="https://github.com/qddt69/ntdtv/blob/master/gb/prog1530_1.md#1">和平抗议</a> | <a target="_blank" href="https://github.com/qddt69/djy/blob/master/gb/nf4386.md#1">支持</a> | <a target="_blank" href="https://github.com/qddt69/djy/blob/master/gb/nf4389.md#1">真相</a> | <a target="_blank" href="https://github.com/qddt69/djy/blob/master/gb/nf5790.md#1">圣缘</a> | <a target="_blank" href="https://github.com/qddt69/djy/blob/master/gb/nf4786.md#1">神韵</a></td></tr>
-<tr><td VALIGN=TOP width="626"><h2 align=center>entry-</h2>
+<tr><td VALIGN=TOP width="626"><h2 align=center>关于大纪元</h2>
 
 <h6></h6>
 <hr>
@@ -244,17 +244,16 @@
 <hr>
 
 #### 本文转自<a href="http://www.epochtimes.com">大纪元</a>（国内需用<a href="https://git.io/JesJV">翻墙软件</a>才能访问）
-> 原文：<a href="http://www.epochtimes.com/gb/about-djy.htm">entry-</a>
+> 原文：<a href="http://www.epochtimes.com/gb/about-djy.htm">关于大纪元</a>
 #### 下载<a href="https://git.io/JesJV">翻墙软件</a>浏览<a href="http://www.epochtimes.com">大纪元</a>相关新闻：
-> <li><a href="http://www.epochtimes.com/gb/19/10/2/n11564062.htm">加州油价涨达4.03美元 高出全美1.29</a></li>
-> <li><a href="http://www.epochtimes.com/gb/19/10/1/n11558797.htm">加州允许大学运动生赚钱 NCAA警告禁赛</a></li>
-> <li><a href="http://www.epochtimes.com/gb/19/9/28/n11553145.htm">加州有人冒充中共特警 警方抓一人展开调查</a></li>
-> <li><a href="http://www.epochtimes.com/gb/19/9/28/n11552129.htm">不清理选民册 加州或面临诉讼</a></li>
-> <li><a href="http://www.epochtimes.com/gb/19/9/27/n11551664.htm">南加州华人作协中秋风花雪月吟诗咏曲</a></li>
-> <li><a href="http://www.epochtimes.com/gb/19/9/27/n11550004.htm">CAR：加州房价明年涨2.5% 更多人想搬走</a></li>
-> <li><a href="http://www.epochtimes.com/gb/19/9/27/n11549984.htm">炼油厂故障 加州油价近一两周将上涨</a></li>
-> <li><a href="http://www.epochtimes.com/gb/19/9/27/n11549710.htm">加州明年3月3日总统初选 比往年提前</a></li>
-> <li><a href="http://www.epochtimes.com/gb/19/9/27/n11549614.htm">ICE：加州庇护政策威胁公共安全</a></li>
+> <li><a href="http://www.epochtimes.com/gb/19/10/3/n11564629.htm">旧金山中华总会馆商董：登报祝贺十一  别算我们</a></li>
+> <li><a href="http://www.epochtimes.com/gb/19/10/3/n11564586.htm">旧金山湾区被捕共谍  申请保释被拒       无资格动用公辩律师</a></li>
+> <li><a href="http://www.epochtimes.com/gb/19/9/30/n11558344.htm">旧金山湾区居民疑为中共间谍被捕</a></li>
+> <li><a href="http://www.epochtimes.com/gb/19/9/30/n11557238.htm">排名前10旧金山湾区咖啡馆推荐（上）</a></li>
+> <li><a href="http://www.epochtimes.com/gb/19/9/23/n11539790.htm">旧金山韩国料理 这些年我们接触的韩餐（三）</a></li>
+> <li><a href="http://www.epochtimes.com/gb/19/9/30/n11556332.htm">民众旧金山中领馆前为中共“送终”</a></li>
+> <li><a href="http://www.epochtimes.com/gb/19/9/30/n11556181.htm">法轮功教功班让人身心受益    旧金山湾区菲利蒙各族裔居民感谢</a></li>
+> <li><a href="http://www.epochtimes.com/gb/19/9/30/n11556109.htm">旧金山民众市府前集会 全球声援香港</a></li>
 
 #### 下载<a href="https://git.io/JesJV">翻墙软件</a>浏览<a href="http://www.epochtimes.com">大纪元</a>热门新闻：
 > <li><a href="http://www.epochtimes.com/gb/19/10/2/n11563626.htm">【新闻看点】习内部讲话曝光 李嘉诚处境堪忧</a></li>
