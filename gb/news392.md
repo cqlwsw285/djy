@@ -33,8 +33,14 @@
 <tr><td><h3><a href="https://github.com/qddt69/djy/blob/master/gb/19/10/1/n11559216.md#1" target="_blank">唐恩：法网紧收 恶人难逃</a><br></h3><a href="https://github.com/qddt69/djy/blob/master/gb/19/10/1/n11559216.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2014/10/140720093052100311-150x120.jpg" align ="left"></a>近日，美国、加拿大、英国及澳大利亚的法轮功学员将又一批迫害法轮功的恶人名单递交给本国政府，要求依法对这些恶人拒发签证、乃至冻结资产。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月01日 2:23 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/qddt69/djy/blob/master/gb/19/10/1/n11559177.md#1" target="_blank">陈思敏：“罪犯政权”—人民法庭对中共的判词</a><br></h3><a href="https://github.com/qddt69/djy/blob/master/gb/19/10/1/n11559177.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/04/Tribunal_1-g-150x120.jpg" align ="left"></a>今年10月1日是中共建政70周年。这70年来，中共利用国家机器践踏人权广泛迫害中国人民，其中又以大规模强摘器官买卖为最近10年国际社会持续追踪的重大人权问题。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月01日 2:01 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/qddt69/djy/blob/master/gb/19/10/1/n11559129.md#1" target="_blank">洪微：川普“十一”戳穿中共阴谋</a><br></h3><a href="https://github.com/qddt69/djy/blob/master/gb/19/10/1/n11559129.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/1192ad509b896ca48dc8ba2367f01188-600x400-150x120.jpg" align ="left"></a>9月30日清晨，勤快的川普总统又早早起床了，5点31分，连发推特3次，都是关于中国的，其中还提到“中国生日快乐”（Happy Birthday China）。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月01日 1:41 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/qddt69/djy/blob/master/gb/19/10/1/n11558868.md#1" target="_blank">王友群：10月中美贸易谈判结果会怎样？</a><br></h3><a href="https://github.com/qddt69/djy/blob/master/gb/19/10/1/n11558868.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/08/000_1J80ZR-600x400-2-150x120.jpg" align ="left"></a>9月29日，中共商务部副部长王受文宣布，中共副总理刘鹤将在十一后一周率团到华盛顿参加中美第13轮贸易谈判。
-在新一轮贸易谈判开始前，中美双方都释放了一些信号。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月01日 11:57 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/qddt69/djy/blob/master/gb/19/10/4/n11566726.md#1" target="_blank">万古缘：中华法度中</a><br></h3>赵家哀姓赵，
+红叶叹身红。
+共匪何称共？
+东坡悔叫东。
+邪灵藏宝殿，
+恶党是毒龙。
+赤县清除赤，
+中华法度中！......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月04日 10:45 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/qddt69/djy/blob/master/gb/19/10/3/n11564520.md#1" target="_blank">耿静：七十载逆浪淘沙，且看今朝</a><br></h3>七十载，赳赳红朝，逆浪狂淘，让达尔文撞墙！逼马克思跳江！......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月03日 12:57 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/qddt69/djy/blob/master/gb/19/10/2/n11563953.md#1" target="_blank">习主席：答应五求有脸面</a><br></h3>怀柔胜过铁腕拳，平息怒火理不偏；
 明珠闪光大陆亮，政敌哑口国际援。
