@@ -616,5 +616,4 @@ Wright-Gilbert对CBC表示，当.........<br><img align="bottom" src="http://www
 窜东土而幻惑
 恨资本之流转而益众
 欲独霸而奴戮......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月05日 1:50 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/clbjqp2826/djy/blob/master/gb/19/10/5/n11569415.md#1" target="_blank">昆州能源水利公司屡遭投诉 高管则获高额奖金</a><br></h3>昆州去年有成千上万的用户向能源和自来水公司投诉，而今年的年度报告却显示昆州能源公司的首席执行官获得高额奖金。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月05日 11:02 AM			</td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/clbjqp2826/djy/blob/master/gb/n24hr.md#1<br><a href="https://github.com/clbjqp2826/djy/blob/master/gb/n24hr.md#1"><img src="http://www.hehaibao.com/qr/index.php?m=1&e=L&p=10&t=&d=https://github.com/clbjqp2826/djy/blob/master/gb/n24hr.md%231" title="分享本文章"></a><br>原文地址： <a href="http://www.epochtimes.com/gb/n24hr.htm">http://www.epochtimes.com/gb/n24hr.htm</a>    （国内需<a href="https://git.io/JesJV">下载翻墙软件</a>才能访问）</p>
