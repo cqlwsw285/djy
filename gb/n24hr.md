@@ -914,7 +914,4 @@ WhyHotel旅馆利用大楼.........<br><img align="bottom" src="http://www.epoch
 金郡图书馆系统是目前为数不多的几个一直为读者提供免费复印和打印服务的图书馆系统。
 
 据金郡图书馆系统社区关系和市场总监朱莉·阿特森（Julie Acteson）称，2017年，金郡图书馆系统复印了超过1千5百万页的黑白文件和250万页的彩色文件。20.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月08日 12:57 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/xkrpz249/djy/blob/master/gb/19/10/8/n11575057.md#1" target="_blank">南加眼科医生665万和解健保欺诈案</a><br></h3>南加州的一个眼科研究组织与其前首席执行官及几名医生被控欺诈公共健保资金，已于上周稍早支付了665万美元来和解其诉讼，包括赔偿联邦635万美元、赔偿加州近30万美元。
-
-司法部上周五（10月4日）宣布该和解案时说，加州视网膜研究所（Retina Institute of California Medical Grou.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月08日 11:38 AM			</td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/xkrpz249/djy/blob/master/gb/n24hr.md#1<br><a href="https://github.com/xkrpz249/djy/blob/master/gb/n24hr.md#1"><img src="http://www.hehaibao.com/qr/index.php?m=1&e=L&p=10&t=&d=https://github.com/xkrpz249/djy/blob/master/gb/n24hr.md%231" title="分享本文章"></a><br>原文地址： <a href="http://www.epochtimes.com/gb/n24hr.htm">http://www.epochtimes.com/gb/n24hr.htm</a>    （国内需<a href="https://git.io/JesJV">下载翻墙软件</a>才能访问）</p>
