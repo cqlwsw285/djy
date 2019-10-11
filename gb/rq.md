@@ -12,7 +12,7 @@
 <h4><p><a href="https://github.com/woywz155/djy/blob/master/gb/18/10/30/n10818821.md#1"> 澳洲拒华为中兴参与5G建设 澳情报官支持</a></p></h4>
 <h4><p><a href="https://github.com/woywz155/djy/blob/master/gb/18/10/5/n10763734.md#1">  中共植入间谍芯片引担忧 联想中兴股票暴跌</a></p></h4>
 <h4></h4>
-<h4><p><a href="https://github.com/woywz155/mh/blob/master/README.md">《明慧网通告》</a></p></h4>
+<h4><p><a href="https://github.com/woywz155/djy/blob/master/gb/mh/mhtg.md?fldfwoywz155#1">《明慧网通告》</a></p></h4>
 <h4><p><a href="https://github.com/woywz155/djy/blob/master/gb/19/6/6/n11303615.md #1"> 追查国际:收集迫害法轮功犯罪者名单和罪证</a></p></h4>
 <h4><p><a href="https://github.com/woywz155/djy/blob/master/gb/19/6/1/n11294406.md#1"> 【新闻看点】美打中共要害 侵犯人权将受制裁</a></p></h4>
 <h4><p><a href="https://github.com/woywz155/djy/blob/master/gb/19/6/6/n11303798.md#1"> 陈光诚向美提交迫害者名单 “子弹上膛了”</a></p></h4>
