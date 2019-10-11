@@ -595,7 +595,16 @@ I-976号提案是华州反税收活动家蒂姆·艾曼（Tim Eyman）发起的�
 <tr><td><h3><a href="https://github.com/woywz155/djy/blob/master/gb/19/10/9/n11578660.md#1" target="_blank">温昇豪敲金钟做公益 赴法国遭卷骗局</a><br></h3><a href="https://github.com/woywz155/djy/blob/master/gb/19/10/9/n11578660.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/1910091009381470-ss1-150x120.jpg" align ="left"></a>凭《我们与恶的距离》获得金钟奖戏剧节目男配角奖的温昇豪，领奖前一晚甫从法国返台没睡饱，传出卷入“罗浮宫千万走秀”骗局，整团艺人与模特儿被骗到法国，最后经纪公司察觉有异临时喊卡。对此，他今天（9日）出席公益活动时表示自己并未出席该活动，“公司觉得有争议，就先不执行”。
 
 温昇豪回忆当时情况表示：“本来想说是东西文化交.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月09日 10:22 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/woywz155/djy/blob/master/gb/19/10/9/n11577578.md#1" target="_blank">天籁之音 神韵交响音乐会周六纽约登场</a><br></h3><a href="https://github.com/woywz155/djy/blob/master/gb/19/10/9/n11577578.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/f457ee71e32b795dc5f4ca758b96a6cc-150x120.jpg" align ="left"></a>神韵艺术团交响乐团圆满结束近期在台湾的巡演后，马不停蹄拉开北美巡回演出的帷幕，上周日（6日）在加拿大多伦多带来今年北美的首场，受到观众的热烈欢迎，好评如潮。纽约的观众在翘首以待一年后，也将于本周六（12日），在卡内基音乐厅（Carnegie Hall），迎来神韵交响乐团带来的两场东西方音乐珠联璧合的交响音乐会。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月09日 9:57 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/woywz155/djy/blob/master/gb/19/10/11/n11583224.md#1" target="_blank">吐为快：共产幽灵之幻相</a><br></h3>斗天标语涂红墙，灵魂深处辟战场
+激情燃烧古书画，无情打击白专郎
+汹汹群运藏阴谋，幽幽蟾魅隐朝堂
+土偶像前忠字舞，大会堂里马屁响
+饿殍遍野魂渺渺，硕鼠满仓意洋洋
+真真假假温誓词，热热闹闹走过场
+禅堂寺庵升国旗，洞房花烛抄党章
+谎言中央天花坠，傀儡港府恶法酿
+手术台上竟活摘，一群屠夫逞凶狂......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月12日 6:11 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/woywz155/djy/blob/master/gb/19/10/11/n11582211.md#1" target="_blank">13年冤狱 河南法轮功学员郑现金被迫害离世</a><br></h3>8月11日，河南省淮阳市57岁的法轮功学员郑现金被迫害含冤离世。他生前曾多次遭绑架、关押、非法劳教，两次被非法判刑刑期共13年。他去世时，其修炼法轮功的妻子仍被非法关押在狱中。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月12日 5:58 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/woywz155/djy/blob/master/gb/19/10/10/n11581223.md#1" target="_blank">国家广场停车费率或将上涨</a><br></h3>国家公园管理局日前在一份声明中提议，希望将国家广场附近的停车费率用从目前的每小时2美元涨到每小时2.3美元，大巴车的停车费率从每小时6美元涨到每小时6.9美元。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月12日 5:35 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/woywz155/djy/blob/master/gb/19/10/10/n11581214.md#1" target="_blank">鹿群繁殖季节来临 司机驾车需注意</a><br></h3>每年的这个时候，华府地区的驾驶员可能在路上看到更多的鹿。这里有几件事要记住，以避免发生事故。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月12日 5:32 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/woywz155/djy/blob/master/gb/19/10/11/n11583105.md#1" target="_blank">港男坠楼惨死 断肢飞出 地上无明显血迹</a><br></h3>香港“反送中”期间不断传出市民“自杀”消息，有些案件更是疑点重重。近日香港连登社区（LIHKG）再上传一组惊悚照片，内容疑似是一具尸体衣衫不整倒卧在路面上，但看不到明显血迹，且一只脚与小腿断开飞脱。网友质疑死因不单纯。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月12日 4:48 AM			</td></tr>
