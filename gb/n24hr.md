@@ -453,13 +453,6 @@ PG&amp;E周三（10月9日）凌晨已经以大风、干燥及野火风险高为
 
 今年8月份，前联邦参议员候选人克鲁兹（Erin Cruz）、前联.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月11日 10:18 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/jrxob2776/djy/blob/master/gb/19/10/10/n11580758.md#1" target="_blank">主播林子博遭TVB解雇 古天乐热心帮牵戏约</a><br></h3><a href="https://github.com/jrxob2776/djy/blob/master/gb/19/10/10/n11580758.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2018/05/180513073654100311-150x120.jpg" align ="left"></a>稍早前遭无线台（TVB）解雇的前娱乐新闻主播林子博，10日出席活动时担任主持，也是他失业两周来首次开工。他在现场透露，10月1日约满TVB的他，在早前接获续约三年并加薪的通知后，9月28日突然又被通知是“Last Day”。自认“因祸得福”的他说，通过古天乐等艺人热心相助，他现在找到了新的工作。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月11日 10:15 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/jrxob2776/djy/blob/master/gb/19/10/11/n11581516.md#1" target="_blank">庆中华民国108华诞  亚特兰大举行升旗典礼</a><br></h3><a href="https://github.com/jrxob2776/djy/blob/master/gb/19/10/11/n11581516.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/DSC_8019-150x120.jpg" align ="left"></a>10月6日（星期日），亚特兰大各界侨胞欢聚一堂，在侨教中心为庆祝中华民国108周年举行升旗典礼。上午11时，升旗典礼由荣光会主持，在侨教中心室外举行。重阳合唱团分别演唱了美国国歌和中华民国国歌，国旗在歌声中缓缓升起。按照惯例，全体来宾在主持人带领下高呼三民主义万岁、中华民国万岁等口号。
-
-
-
-
-
-升旗典礼后.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月11日 10:00 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/jrxob2776/djy/blob/master/gb/19/10/13/n11585071.md#1" target="_blank">江苏无锡一小吃店爆炸 已致6死9伤</a><br></h3>江苏省无锡市接连发生灾难性事故。10月13日上午11时许，无锡锡山区鹅湖镇新杨路一小吃店发生燃气爆炸。官方称，目前共有15名受伤人员送医，其中6人抢救无效死亡。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月13日 5:34 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/jrxob2776/djy/blob/master/gb/19/10/13/n11585177.md#1" target="_blank">国庆连假最终日 宜花省道估午后涌车潮</a><br></h3>13日为国庆连续假期最后一天，宜兰、花莲地区天气为多云时阴，截至上午9时，台9线苏花改苏澳往东澳方向车流量为903辆，东澳往苏澳方向为2,565辆，公路总局预估，中午过后会有一波北返车潮，提醒用路人注意。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月13日 5:15 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/jrxob2776/djy/blob/master/gb/19/10/13/n11585056.md#1" target="_blank">南台湾最专业食品盛会 高雄食品展24日登场</a><br></h3>南台湾最盛大的食品专业盛会“2019高雄国际食品展览会”将于10月24日至27日在高雄展览馆盛大登场，参展厂商共392家、使用756摊位数，4天展期预估将吸引2万参观人次。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月13日 4:53 PM			</td></tr>
