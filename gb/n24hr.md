@@ -387,8 +387,6 @@ Kanata-Carleton选区
 
 美国房地产专家协会是一家第三方评级机构，该机构发布各州年度排名前10位的房地产专家名单。入选“十佳”的.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月11日 11:03 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/jrxob2776/djy/blob/master/gb/19/10/11/n11582645.md#1" target="_blank">美中贸易谈判进行中 川普：好事正在发生</a><br></h3><a href="https://github.com/jrxob2776/djy/blob/master/gb/19/10/11/n11582645.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/000_1LA7D6-3-150x120.jpg" align ="left"></a>美中第13轮高级贸易谈判周五（10月11日）进入第二天。川普（特朗普）总统当天发推透露，贸易谈判会正有好事发生。他还表示，与中方的协议，他自己签署即可，不需要国会批准。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月11日 10:57 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/jrxob2776/djy/blob/master/gb/19/10/11/n11582551.md#1" target="_blank">手感捕鱼秤重  枋寮渔业职人秀功夫</a><br></h3><a href="https://github.com/jrxob2776/djy/blob/master/gb/19/10/11/n11582551.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/6e311bd4eb6af4649958168c82f77c9a-150x120.jpg" align ="left"></a>枋寮乡新龙社区发展协会11日在社区红树林生态公园，举办“2019新鱼跃龙门产业活动”，由社区养殖渔达人“捕鱼秤重比赛”拉开活动序幕，活动广邀社区老中青三代养殖渔达人，展现手感分辨石斑鱼斤两及出货规格的池边真功夫。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月11日 10:43 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/jrxob2776/djy/blob/master/gb/19/10/11/n11582507.md#1" target="_blank">光良为“攻蛋”暖身献唱 自豪身材23年不变</a><br></h3><a href="https://github.com/jrxob2776/djy/blob/master/gb/19/10/11/n11582507.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/1910110918411487-150x120.jpg" align ="left"></a>大马唱作歌手光良今（11）日举办“你爸妈肯定认识我”的免费“音约会”，为了睽违12年的二次“攻蛋”，将于明年3月14日举行的“今晚我不孤独”巡演台北限定场暖身，光良一连演唱了七首经典歌曲。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月11日 10:42 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/jrxob2776/djy/blob/master/gb/19/10/13/n11586060.md#1" target="_blank">银行高级顾问：从神韵音乐中听到神的声音</a><br></h3>周六（10月12日）晚，欣赏过神韵交响乐团在纽约知名的卡内基音乐厅（Carnegie Hall）的最后一场演出后，观众感叹神韵音乐带给人们与神同在的重获新生的感受。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月14日 6:34 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/jrxob2776/djy/blob/master/gb/19/10/13/n11586049.md#1" target="_blank">神韵音乐打动人心 建筑工程公司老板感动</a><br></h3>周六（10月12日）晚，神韵交响乐团在纽约卡内基音乐厅（Carnegie Hall）的第二场演出在观众多次起立鼓掌，两次安可曲后结束。演出的不同曲目在听众心里勾勒出一幅幅图画，打动人心，令观众感动。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月14日 6:17 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/jrxob2776/djy/blob/master/gb/19/10/13/n11585781.md#1" target="_blank">张林：中共目前面对三场拉锯战</a><br></h3>持续1年零5个月的美中贸易战，已经给中共重大打击。跨国企业纷纷撤出看起来注定要沦陷的中国，大量中国企业破产，百业萧条，房地产市场正在进行最后的挣扎。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月14日 1:28 AM			</td></tr>
@@ -520,43 +518,4 @@ WalletHub对美国180个大城市从30个方面进行比较，选出拥有最美
 
 争吵发生在晚上7点30分之前，地点位于Vine街靠近13街的地方。警方发布信息警方说，一名23岁男子的喉咙左下部被刺伤；一名51岁男子被刺中左脸颊；一名35岁男子鼻子被划伤。但没有说明打斗的原因以及参与者的身份。所有受害者均被警.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月11日 10:51 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/jrxob2776/djy/blob/master/gb/19/10/11/n11582673.md#1" target="_blank">麻州周末好去处（10/11/2019）</a><br></h3>MFA免费开放、半马拉松赛......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月11日 10:50 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/jrxob2776/djy/blob/master/gb/19/10/11/n11581710.md#1" target="_blank">费城亚裔市议员提案为毕业生减税? ?</a><br></h3>费城市亚裔市议员吴大卫（David Oh）提出190616议案，计划在五年内帮助学生减税7千5百美元。
-
-申请条件是申请人在大学等教育机构毕业五年之内，而且有超过3万5千美元的学生债务。根据调查，费城在2018年已经成为学生债务的重灾区，平均债务为3万6千美元。原因之一是费城拥有众多的大学、医学院、护士学校、律师等.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月11日 10:50 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/jrxob2776/djy/blob/master/gb/19/10/11/n11581690.md#1" target="_blank">宾州居民应更换真实身份证</a><br></h3>宾州真实身份证驾照（Real ID）延缓期限明年到期。2020年10月1日之后搭乘美国国内航班也必须用真实身份证（用护照也可以）。
-
-自2019年3月1日起，宾州各地增加了12个新的真实身份证中心。费城有3个真实身份证中心。到目前为止，已有大约41万5千名宾州居民获得真实身份证。
-
-真实身份证可以在驾照中心或真.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月11日 10:49 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/jrxob2776/djy/blob/master/gb/19/10/11/n11581633.md#1" target="_blank">SEPTA购买中国造车厢 获联邦补贴引争议</a><br></h3>费城的SEPTA在2017年与麻省的CRRC MA签约，以13.8亿美元定购45辆多层车厢来取代陈旧的车厢。这比另外一家投标最低的制造商便宜3400万美元，第一批车辆预计在2020年运到。
-
-如此低的投标价引起了美国立法者的注意。调查发现，CRRC MA是中共政府的一家公司。在今年9月，众议院通过了一项军事支出法案.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月11日 10:48 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/jrxob2776/djy/blob/master/gb/19/10/11/n11581608.md#1" target="_blank">费城炼油厂关闭 关键人员重金相留</a><br></h3>美国东岸最大的炼油厂--费城炼油厂在6月21日发生火灾和爆炸之后宣布破产，营运150年后关闭。
-
-8月25日，费城炼油厂的大部分职工离开了工厂，只留下85名技术骨干人员操作废水处理装置，继续完成烷基化装置中和氢氟酸的工作，并协助联邦调查人员对火灾和爆炸的调查工作。
-
-10月1日，60名善后工人收到裁员通知，只留.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月11日 10:47 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/jrxob2776/djy/blob/master/gb/19/10/11/n11581575.md#1" target="_blank">金秋10月乘车畅游大费城葡萄酒之乡</a><br></h3>葡萄农场和屡获殊荣的酿酒厂遍布宾州，为庆祝每年10月的宾州葡萄酒月，费城地区公共交通公司SEPTA和共享出租车公司Lyft合作，联手推出“宾州葡萄酒之乡”旅游服务，让民众无需自己开车即享受轻松出行的乐趣。
-
-游览路线包括费城郊区Bucks郡、Chester、Delaware郡和Montgomery 郡的27家酿酒厂.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月11日 10:46 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/jrxob2776/djy/blob/master/gb/19/10/11/n11581554.md#1" target="_blank">费城老城区周日办活动</a><br></h3>充满历史和人文气息的费城老城区周日举办第六届秋季活动。有舞台表演、现场音乐、街头表演，以及家庭娱乐。有100多家厂商提供应美食、糕点、咖啡和啤酒等。当日下午1:30 , 在3街还有时装表演。
-
-时间﹕10月13日，上午11 点至晚6点
-地址：老城区；3街（Markt街与Race街之间）；Arch街（2街与4街之间.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月11日 10:45 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/jrxob2776/djy/blob/master/gb/19/10/11/n11581537.md#1" target="_blank">Chadds Ford年度大南瓜雕刻活动</a><br></h3>查兹福特（Chadds Ford）本周末举办历时3个夜晚的巨型南瓜雕刻活动，重点介绍70多颗巨型南瓜雕刻，让人们驰骋于幻想的南瓜世界。现场还有音乐演奏、乘坐稻草车、和多种当地的食物等。
-
-门票：15美元（18岁以上）﹔5美元（7岁以上至17岁）﹔免费（6 岁以下）
-时间：10月17, 18, 19日﹔下午4时至晚.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月11日 10:44 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/jrxob2776/djy/blob/master/gb/19/10/11/n11581521.md#1" target="_blank">美国独立战争博物馆原住民文化展</a><br></h3>美国独立战争博物馆北美原住民展周六开始，为期三天。由切罗基印第安人博物馆（Museum of the Cherokee Indian）主办，介绍印第安人丰富的文化遗产。以历史故事、文物、表演等方式，透过影片、音乐、舞蹈展演和互动式的导览，帮助游客了解Andean 、Aztec和其他北美原住民的文化。
-
-时间：10月.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月11日 10:44 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/jrxob2776/djy/blob/master/gb/19/10/11/n11582654.md#1" target="_blank">新英格兰社区公告栏（10/11/2019）</a><br></h3>愿荣光归香港大游行(10/12)......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月11日 10:43 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/jrxob2776/djy/blob/master/gb/19/10/11/n11581492.md#1" target="_blank">宾州蒙哥马利镇迎秋活动</a><br></h3>位于费城西北的蒙哥马利镇（Montgomery Twp）周日举办活动,庆祝十月南瓜丰收。今年是第16届。有现场音乐、南瓜雕刻、家庭娱乐、稻草人制作、多种摊位和美食等。入场腕带预售7美元（现金，支票或信用卡）。现场售价：10美元（只收现金）。但玉米迷宫和动物园不需要腕带进场。
-
-时间：10月12日﹔下午12点至5点
-.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月11日 10:43 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/jrxob2776/djy/blob/master/gb/19/10/11/n11581475.md#1" target="_blank">费城市中心公园十月啤酒节</a><br></h3>位于费城市政厅西侧的迪尔沃思公园周末举办年度十月啤酒节，为酒客带来Victory Brewing Company和Goose Island Beer Company的时令精酿啤酒、Maker’s Mark Bourbon鸡尾酒，以及当季食品。活动期间，每天都有DJ和乐队表演。
-
-时间：10月11至13日
-地点：D.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月11日 10:42 PM			</td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/jrxob2776/djy/blob/master/gb/n24hr.md#1<br><a href="https://github.com/jrxob2776/djy/blob/master/gb/n24hr.md#1"><img src="http://www.hehaibao.com/qr/index.php?m=1&e=L&p=10&t=&d=https://github.com/jrxob2776/djy/blob/master/gb/n24hr.md%231" title="分享本文章"></a><br>原文地址： <a href="http://www.epochtimes.com/gb/n24hr.htm">http://www.epochtimes.com/gb/n24hr.htm</a>    （国内需<a href="https://git.io/JesJV">下载翻墙软件</a>才能访问）</p>
