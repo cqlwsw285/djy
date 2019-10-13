@@ -409,6 +409,7 @@ Kanata-Carleton选区
 费用：免费入场
 地点：1199 E Beach, San Francisco
 网址：https.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月11日 1:59 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/jrxob2776/djy/blob/master/gb/19/10/13/n11585531.md#1" target="_blank">王赫：“共和国勋章”获得者的人生另面</a><br></h3>中共在窃国70周年之际，颁布其“国家勋章和国家荣誉制度” 中的最高一级——“共和国勋章”，首批8人。本文无意攻击或贬低这8位“勋章”获得者，只是希望在陆媒连篇累牍的颂歌之外，读者还能了解他们人生中被有意抹杀的另一面，看看所谓“共和国”——党国——的真面目。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月13日 9:43 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/jrxob2776/djy/blob/master/gb/19/10/13/n11585270.md#1" target="_blank">绑架 枉判 致死案 四平法轮功学遭迫害综述</a><br></h3>2018年至2019年9月，吉林省四平市政法委、“610”操控并参与迫害法轮功，致使四平地区法轮功学员刘金茹被迫害致死、张景全等5人遭非法判刑、杨慧云等49人遭绑架迫害。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月13日 9:30 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/jrxob2776/djy/blob/master/gb/19/10/13/n11585424.md#1" target="_blank">神韵音乐带来天堂的眷顾 经济学家赞叹</a><br></h3>退休的经济学家Rudolf Hauser经常听西方音乐，这次来到卡内基音乐厅欣赏了中西璧合的神韵音乐后，他说自己感觉到“美妙而新奇”。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月13日 9:08 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/jrxob2776/djy/blob/master/gb/19/10/13/n11585028.md#1" target="_blank">神韵交响乐中西合璧 作曲人获灵感</a><br></h3>“我想围绕二胡和琵琶创作一首曲子。”自由作曲人Abigail Pierre10月12日在纽约卡内基音乐厅聆听了神韵交响乐之后获得了灵感。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月13日 8:09 PM			</td></tr>
@@ -598,8 +599,4 @@ WalletHub对美国180个大城市从30个方面进行比较，选出拥有最美
 红地毯卷封。
 特朗普挺胸，
 款待迎故宫。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月11日 2:46 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/jrxob2776/djy/blob/master/gb/19/10/11/n11582002.md#1" target="_blank">汽车维修问与答：机油放油螺丝垫圈</a><br></h3>汽车维修问与答
-
-读者Jinjin问：你好，我有问题咨询你，我以前汽车机油放油螺丝刀垫片表面是橡胶涂层（Dorman）品牌的，最近又从eBay上面买了其他品牌的垫片表面是有点像纸质的材质，（如下图左边是表面是橡胶涂层右边的纸质的涂层）请问纸质量的外表涂层可不可以正常使用？哪一种表面材质的垫片会比较好？谢谢解答。
-.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月11日 1:48 PM			</td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/jrxob2776/djy/blob/master/gb/n24hr.md#1<br><a href="https://github.com/jrxob2776/djy/blob/master/gb/n24hr.md#1"><img src="http://www.hehaibao.com/qr/index.php?m=1&e=L&p=10&t=&d=https://github.com/jrxob2776/djy/blob/master/gb/n24hr.md%231" title="分享本文章"></a><br>原文地址： <a href="http://www.epochtimes.com/gb/n24hr.htm">http://www.epochtimes.com/gb/n24hr.htm</a>    （国内需<a href="https://git.io/JesJV">下载翻墙软件</a>才能访问）</p>
