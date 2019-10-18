@@ -29,7 +29,10 @@
 
 相反，NBA火箭队的总经理莫雷说了一句支持香港的话，引来了中共的制裁。更令人震惊的是，NBA的两个明星球员，一个是发言支持中共反对美国，一个指责莫雷太不会说话。他们在说，行使言论自由不需要看是否正义.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月16日 11:22 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/clgbyu263/djy/blob/master/gb/19/10/15/n11590692.md#1" target="_blank">林辉：一个曾给毛献花女孩对父亲的忏悔</a><br></h3><a href="https://github.com/clgbyu263/djy/blob/master/gb/19/10/15/n11590692.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/m0813-gxp-150x120.jpg" align ="left"></a>女孩的妈妈去北大荒领丈夫的遗物时，除了几件破衣服等，就是这本画报和一个日记本。在流水账的日记中，女孩的爸爸写了这样一句话：“我从《人民画报》上找到了她，她太可爱了，我兴奋地直哭！”......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月16日 4:38 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/clgbyu263/djy/blob/master/gb/19/10/15/n11588931.md#1" target="_blank">程晓容：13万港人再发声 国际社会应守护自由</a><br></h3><a href="https://github.com/clgbyu263/djy/blob/master/gb/19/10/15/n11588931.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/photo_2019-10-14_11-00-23-150x120.jpg" align ="left"></a>目前香港的形势严峻，国际社会面临考验。中共以主权和制暴为借口，一边强势压制抗议，一边试图阻挡外界的支持。一个崇尚假、恶、暴，漠视生命和尊严的政党，不可能是友好的合作伙伴。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月15日 4:20 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/clgbyu263/djy/blob/master/gb/19/10/18/n11596273.md#1" target="_blank">郑纯清：椅腿朽而折 哪里还能坐？</a><br></h3>新规公职革，红朝逞更恶。
+不听党的话，开除砸碗锅。
+党规盖国法，黑老大全裸。
+宣誓对宪法，不才刚搞过。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月18日 12:56 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/clgbyu263/djy/blob/master/gb/19/10/18/n11596253.md#1" target="_blank">陈达：吉林陨石为何还在找？</a><br></h3>贵州贵咒神石，
 早宣书面判词：
 中国共产党亡，
