@@ -34,7 +34,7 @@
 不听党的话，开除砸碗锅。
 党规盖国法，黑老大全裸。
 宣誓对宪法，不才刚搞过。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月18日 12:56 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/clgbyu263/djy/blob/master/gb/19/10/18/n11596253.md#1" target="_blank">陈达：吉林陨石为何还在找？</a><br></h3>贵州贵咒神石，
+<tr><td><h3><a href="https://github.com/clgbyu263/djy/blob/master/gb/19/10/18/n11596253.md#1" target="_blank">陈达：中共哪有葬身之地？</a><br></h3>贵州贵咒神石，
 早宣书面判词：
 中国共产党亡，
 退党旋即成势。
