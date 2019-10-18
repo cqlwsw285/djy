@@ -29,6 +29,7 @@
 
 相反，NBA火箭队的总经理莫雷说了一句支持香港的话，引来了中共的制裁。更令人震惊的是，NBA的两个明星球员，一个是发言支持中共反对美国，一个指责莫雷太不会说话。他们在说，行使言论自由不需要看是否正义.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月16日 11:22 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/clgbyu263/djy/blob/master/gb/19/10/15/n11590692.md#1" target="_blank">林辉：一个曾给毛献花女孩对父亲的忏悔</a><br></h3><a href="https://github.com/clgbyu263/djy/blob/master/gb/19/10/15/n11590692.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/m0813-gxp-150x120.jpg" align ="left"></a>女孩的妈妈去北大荒领丈夫的遗物时，除了几件破衣服等，就是这本画报和一个日记本。在流水账的日记中，女孩的爸爸写了这样一句话：“我从《人民画报》上找到了她，她太可爱了，我兴奋地直哭！”......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月16日 4:38 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/clgbyu263/djy/blob/master/gb/19/10/18/n11596305.md#1" target="_blank">伍凡 ：习近平如何善了中美贸易第一阶段协议？</a><br></h3>10月11日川普会见刘鹤时表示，与中国达成了实质性第一阶段协议，协议涵盖知识产权、金融服务，最多400-500亿美元的农产品购买。川普说协议预计还需要4-5周完成正式文本。协议将在11月中旬的智利之行（APEC峰会期间） 签署完成。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月18日 1:13 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/clgbyu263/djy/blob/master/gb/19/10/18/n11596273.md#1" target="_blank">郑纯清：椅腿朽而折 哪里还能坐？</a><br></h3>新规公职革，红朝逞更恶。
 不听党的话，开除砸碗锅。
 党规盖国法，黑老大全裸。
@@ -69,10 +70,5 @@
 家家锅碗砸，排队打清汤。
 遍野惨悲饿殍，皮包瘦骨饥肠。
 万恶之源共产党，祖国山河满目疮。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月16日 3:05 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/clgbyu263/djy/blob/master/gb/19/10/15/n11590675.md#1" target="_blank">海网：印度学生蒙面习像迎习之戏观感</a><br></h3>迎宾生两千，全蒙习喜面。
-党媒镜脱眉，镜头吓躲远。
-怪戏党文化，寨外被反串？
-低级红红眼，高级黑黑颜。
-不知仿山寨，还是幽默版。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月16日 2:43 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/clgbyu263/djy/blob/master/gb/news392.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/clgbyu263/djy/blob/master/gb/news392_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/clgbyu263/djy/blob/master/gb/news392_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/clgbyu263/djy/blob/master/gb/news392_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/clgbyu263/djy/blob/master/gb/news392_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/clgbyu263/djy/blob/master/gb/news392_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/clgbyu263/djy/blob/master/gb/news392_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/clgbyu263/djy/blob/master/gb/news392_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/clgbyu263/djy/blob/master/gb/news392_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/clgbyu263/djy/blob/master/gb/news392_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/clgbyu263/djy/blob/master/gb/news392_2.md#1">下一页</a></h3></td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/clgbyu263/djy/blob/master/gb/news392.md#1<br><a href="https://github.com/clgbyu263/djy/blob/master/gb/news392.md#1"><img src="http://www.hehaibao.com/qr/index.php?m=1&e=L&p=10&t=&d=https://github.com/clgbyu263/djy/blob/master/gb/news392.md%231" title="分享本文章"></a><br>原文地址： <a href="http://www.epochtimes.com/gb/news392.htm">http://www.epochtimes.com/gb/news392.htm</a>    （国内需<a href="https://git.io/JesJV">下载翻墙软件</a>才能访问）</p>
