@@ -483,7 +483,18 @@ Caluza住在奥克.........<br><img align="bottom" src="http://www.epochtimes.co
 <tr><td><h3><a href="https://github.com/eqzow2704/djy/blob/master/gb/19/10/18/n11596040.md#1" target="_blank">美参议员：希望NBA为香港抗议者发声</a><br></h3><a href="https://github.com/eqzow2704/djy/blob/master/gb/19/10/18/n11596040.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/P1070961-150x120.jpg" align ="left"></a>10月17日，美国民主党籍联邦参议员库恩斯（Christopher Coons）在华府智库威尔逊中心表示， 希望NBA支持香港的和平抗议者，为他们发声。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月18日 12:53 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/eqzow2704/djy/blob/master/gb/19/10/18/n11596185.md#1" target="_blank">捷克艺术水晶抵台巡回  希腊神话奇巧复活</a><br></h3><a href="https://github.com/eqzow2704/djy/blob/master/gb/19/10/18/n11596185.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/d7e8f5f1cebdfec8e6425799b1067572-150x120.jpg" align ="left"></a>1857年创立品牌，拥有162年历史的摩瑟水晶，10月间再度来台巡回展出。今年的摩瑟精品大幅增加水晶制作难度较高的多层式组合，三层式设计再增加中空造型，于其上雕梁画栋；独树一帜的渐层色调的制作技术，加上卓越雕工，展现摩瑟水晶如宝石般难以超越的特质，在不景气的年代，依旧是收藏家们不忍错过的艺术精品。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月18日 12:48 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/eqzow2704/djy/blob/master/gb/19/10/18/n11596259.md#1" target="_blank">橙色好还是白色好 两种切达乳酪有何分别？</a><br></h3><a href="https://github.com/eqzow2704/djy/blob/master/gb/19/10/18/n11596259.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2017/03/cheese-2393174_1920-150x120.jpg" align ="left"></a>切达乳酪源自12世纪时英国西南部的切达（Cheddar）村，是目前全世界产量最多的一种乳酪，特色是在制作上运用了特殊的堆酿法（Cheddaring）制成。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月18日 12:44 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/eqzow2704/djy/blob/master/gb/19/10/18/n11595935.md#1" target="_blank">樱井翔与绫濑遥担任令和首届《红白》主持人</a><br></h3><a href="https://github.com/eqzow2704/djy/blob/master/gb/19/10/18/n11595935.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/1903040604372384-150x120.jpg" align ="left"></a>今天（18日），日本NHK官方网站公布第70届《NHK红白歌唱大赛（NHK红白歌合戦）》的主持人名单。女子红组由绫濑遥出任主持人，男子白组仍由“ARASHI岚”的樱井翔担任。总主持人则仍由连续三年担纲该要务的内村光良接下。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月18日 12:42 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/eqzow2704/djy/blob/master/gb/19/10/20/n11600409.md#1" target="_blank">台普悠玛事故周年 144改善项目仅完成25项</a><br></h3>普悠玛翻车事故满周年，台铁20日公布行政院总体检报告144项改善项目的执行情形，其中有126项已拟妥行动计划，仅完成25项，另有18项无法拟定改善计划；而在过去一年中，未出库强制换车、行驶中异常停检共有81件。另外，台铁将于10月底前提告日本列车厂商并求偿。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月20日 8:35 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/eqzow2704/djy/blob/master/gb/19/10/20/n11600407.md#1" target="_blank">政府推国防自主 国防院：建安管机制刻不容缓</a><br></h3>蔡政府上台后大力推动国防自主，国舰国造、国机国造、潜舰国造更是重点项目。不过国防安全研究院的安全周报提醒，政府因应台湾扩大军民两用科技运用、资源释商，建立国防科技与产业安全管控机制是刻不容缓的工作，不仅能保护国防机密与关键研究成果，涉及重大建案及跨国合作时，确保攸关合作成败的机密。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月20日 8:35 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/eqzow2704/djy/blob/master/gb/19/10/20/n11600391.md#1" target="_blank">吁团结投票 赖清德：捍卫台湾拒绝中共</a><br></h3>前行政院院长赖清德近日赴美国替总统蔡英文辅选，19日在华府进行第三场后援会成立大会。赖清德向支持者表示，初选已经结束，现在是团结的时候，希望大家都能回台投票，让民进党赢得选举。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月20日 8:33 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/eqzow2704/djy/blob/master/gb/19/10/20/n11600548.md#1" target="_blank">10月18日～10月24日渥太华好去处</a><br></h3>- Ottawa Antique &amp; Vintage Market
+
+时间：10月19日～20日
+
+地点：Carleton University Fieldhouse, 1125 Colonel By Drive
+
+内容：渥太华最大的古董、老式服装和饰品展。
+
+www.ottawaantique.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月20日 8:32 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/eqzow2704/djy/blob/master/gb/19/10/20/n11600389.md#1" target="_blank">陆师涌入尼泊尔 专家警告：中共企图伸入触手</a><br></h3>据尼泊尔媒体报导，未来将有上百名中文教师前往尼泊尔，试图让尼泊尔每所公立学校都开设中文课。有学者担忧，认为这是中共新殖民主义式的做法，意图将触手伸进尼泊尔。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月20日 8:31 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/eqzow2704/djy/blob/master/gb/19/10/20/n11600506.md#1" target="_blank">瓜地马拉总统就任前访台 彰显对台重视</a><br></h3>中共不断切断台湾邦交，但国际上友台力量也越来越多。本周将有荷兰访团及瓜地马拉总统当选人访台，显示台湾与友好国家持续深化合作关系。此外，外交部长吴钊燮日前受媒体专访时表示，过去与台湾断交国家，包括马拉威、哥斯大黎加、圣多美普林西比、巴拿马、多明尼加等5国，都出现“后悔声音”。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月20日 8:27 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/eqzow2704/djy/blob/master/gb/19/10/20/n11600374.md#1" target="_blank">徐永明︰时力将提亮眼不分区名单</a><br></h3>2020年选举进入倒数，各政党的区域、不分区立委选战也逐渐升温。时代力量党主席徐永明20日表示，时代力量的不分区立委名单绝对比其他政党的名单好，其他政党的名单让人感觉都是旧的势力，时力名单绝对是改革突破。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月20日 8:26 PM			</td></tr>
@@ -710,18 +721,4 @@ AAA中大西洋地区分部表示，目前汽油库存丰富，石油价格稳�
 党规盖国法，黑老大全裸。
 宣誓对宪法，不才刚搞过。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月18日 12:56 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/eqzow2704/djy/blob/master/gb/19/10/18/n11596274.md#1" target="_blank">湾畔市政府筹资90万造人工海滩 12月开放</a><br></h3>由于海水对海岸的侵蚀，悉尼南部颇受人们喜爱的拉姆斯盖特海滩（Ramsgate Beach）的沙子不断流失。夏日临近，该海滩所在的湾畔市政府（Bayside Council）已筹资90万澳元，重新填沙，打造人工海滩，预计12月初对外开放。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月18日 12:48 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/eqzow2704/djy/blob/master/gb/19/10/18/n11596262.md#1" target="_blank">新州十台相机一年签发赚2千万违规罚款</a><br></h3>新州罚款最多的10个交通相机为州政府赚了2200万澳元，占过去一年交通相机罚款总额的五分之一。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月18日 12:40 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/eqzow2704/djy/blob/master/gb/19/10/18/n11596253.md#1" target="_blank">陈达：中共哪有葬身之地？</a><br></h3>贵州贵咒神石，
-早宣书面判词：
-中国共产党亡，
-退党旋即成势。
-九评剥光画皮，
-真相唤醒良知。
-三退超三亿四，
-红朝大限将至。
-吉林又降陨石，
-预兆再明昭示。
-天灭中共落实，
-不过眼前之事。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月18日 12:39 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/eqzow2704/djy/blob/master/gb/19/10/18/n11596183.md#1" target="_blank">台中经院：上修今年经济成长率至2.33%</a><br></h3>中华经济研究院预估2019年全年经济成长率约2.33%、2020年估2.34%。中经院院长叶俊显表示，在多数国家下修成长率的情形下，台湾经济出现逆势上修，因为受到下半年基期比较低，加上台商回台热络、贸易转单效益等带动下，今年经济成长模式呈现内外皆温，不过，中国经济成长下行压力也是必须关注的重点。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月18日 12:33 PM			</td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/eqzow2704/djy/blob/master/gb/n24hr.md#1<br><a href="https://github.com/eqzow2704/djy/blob/master/gb/n24hr.md#1"><img src="http://www.hehaibao.com/qr/index.php?m=1&e=L&p=10&t=&d=https://github.com/eqzow2704/djy/blob/master/gb/n24hr.md%231" title="分享本文章"></a><br>原文地址： <a href="http://www.epochtimes.com/gb/n24hr.htm">http://www.epochtimes.com/gb/n24hr.htm</a>    （国内需<a href="https://git.io/JesJV">下载翻墙软件</a>才能访问）</p>
