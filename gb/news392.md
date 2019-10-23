@@ -28,7 +28,13 @@
 <tr><td><h3><a href="https://github.com/brkypg2370/djy/blob/master/gb/19/10/20/n11601191.md#1" target="_blank">组图：法轮功纽约布鲁克林游行  震撼人心</a><br></h3><a href="https://github.com/brkypg2370/djy/blob/master/gb/19/10/20/n11601191.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/LD70759-150x120.jpg" align ="left"></a>“金秋送福撒甘露，大法弟子有真相”，在全球退党大潮达三亿四千万人退出中共党、团、队之际，20日（周日）纽约近千名法轮功学员在布鲁克林八大道繁华街区举行盛大游行，十几个方阵延绵十多条街区，彩旗花船、龙腾狮舞、军乐锣鼓，正气威震八方。壮观的游行再一次将法轮大法的美好带给布鲁克林民众。
 
 游行从八大道68街前往42街，历.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月21日 7:45 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/brkypg2370/djy/blob/master/gb/19/10/20/n11601065.md#1" target="_blank">周晓辉：彭斯重磅演讲可期 美对中共行动或升级</a><br></h3><a href="https://github.com/brkypg2370/djy/blob/master/gb/19/10/20/n11601065.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/GettyImages-1045557642-2-600x400-150x120.jpg" align ="left"></a>美国副总统彭斯计划在10月24日于智库威尔逊中心，发表第二次对华政策的重要演讲......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月21日 4:45 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/brkypg2370/djy/blob/master/gb/19/10/23/n11606248.md#1" target="_blank">云鹤天：一七令?言商</a><br></h3>商。
+和气，经商。
+诚兴业，信兴商。
+丝绸之路，万里通商。
+红魔翻恶狼，狡诈出奸商。
+下岗摆摊叫卖，大街小巷皆商。
+驱逐马列百业盛，童叟无欺好旺商。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月23日 11:52 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/brkypg2370/djy/blob/master/gb/19/10/22/n11604718.md#1" target="_blank">郑纯清：有感于第六届世界互联网大会</a><br></h3>墙内全世界网会，
 巨头网企全缺位。
 力请八十国万宾，
