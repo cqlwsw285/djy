@@ -613,18 +613,6 @@ NBA新赛季在10月22日（周二）拉开帷幕。每名多伦多猛龙队球�
 <tr><td><h3><a href="https://github.com/brkypg2370/djy/blob/master/gb/19/10/22/n11605073.md#1" target="_blank">美股美债齐涨 创25年来最佳表现</a><br></h3><a href="https://github.com/brkypg2370/djy/blob/master/gb/19/10/22/n11605073.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2013/03/1303311038382519-150x120.jpg" align ="left"></a>美国股市和债市2019年至今罕见同步上涨，创下约25年来最佳表现；同时这一趋势仍有望在第四季度延续。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月22日 10:23 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/brkypg2370/djy/blob/master/gb/19/10/22/n11604625.md#1" target="_blank">湾区粤菜知味馆：广东菜名家 “味”胜一筹</a><br></h3><a href="https://github.com/brkypg2370/djy/blob/master/gb/19/10/22/n11604625.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/7896c3754a2d84fcb2c9a9a444516f87-150x120.jpg" align ="left"></a>文：余亨之?大纪元
 “山不在高，有仙则灵”。Fremont城郊有一家外观寻常、店内简朴的餐馆——知味馆（Yum‘s Bistro），创办人任旋是湾区粤菜界的一代翘楚。后来任旋把知味馆和自己的衣钵传人，转交给Queenie女士，任旋评价徒弟“长江后浪推前浪”。知味馆的菜肴匠心独运，在细节上、创新上下功夫，“味”胜一筹.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月22日 10:19 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/brkypg2370/djy/blob/master/gb/19/10/22/n11605105.md#1" target="_blank">期刊：《九评特刊》166期</a><br></h3><a href="https://github.com/brkypg2370/djy/blob/master/gb/19/10/22/n11605105.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/A4-166-1-150x120.jpg" align ="left"></a>
-
-跨页尺寸点击下载a3-166
-
-单页尺寸点击下载a4-166......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月22日 10:01 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/brkypg2370/djy/blob/master/gb/19/10/22/n11605060.md#1" target="_blank">夏川里美出道20年 创日星在台开唱最多次纪录</a><br></h3><a href="https://github.com/brkypg2370/djy/blob/master/gb/19/10/22/n11605060.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/1910220443502122-ss1-150x120.jpg" align ="left"></a>“冲绳歌姬”夏川里美出道20周年，今天（22日）在台北举办记者会，宣布除了发行睽违5年的全新原创专辑《美好珍爱》，并将于12月7日、8日在台北举办第9次的大型售票演唱会“隽永风华”，创下日本艺人在台开唱次数最多的纪录。
-
-
-
-9度赴台开唱
-
-9度踏上宝岛开唱，夏川里美觉得这是一个非常不可思议的纪录，自己很幸.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月22日 10:00 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/brkypg2370/djy/blob/master/gb/19/10/24/n11610362.md#1" target="_blank">王赫：四中全会的两个看点</a><br></h3>《纽约时报》又一次来凑四中全会的热闹。10月14日，《纽约时报》发表长篇调查报导，披露德意志银行如何靠赠送高官奢侈礼物和雇用权贵亲属而在中国发迹，再度曝光中共高层的腐败，涉及多名前任和现任中共最高层领导人，为四中全会的“斗争”（习近平屡提这个词）提供弹药。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月25日 4:49 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/brkypg2370/djy/blob/master/gb/19/10/24/n11610354.md#1" target="_blank">样品测试含石棉 强生公司召回婴儿爽身粉</a><br></h3>上周五（10月18日），在美国食品药品监督管理局（FDA）对从网上零售商购买的一瓶样品测试中发现了少量石棉（asbestos）后，总部位于新泽西州的强生公司（Johnson &amp; Johnson）自愿召回了大批婴儿爽身粉（baby powder）。召回之前，强生公司反复声明该产品安全且不含石棉。公司发言人阿劳霍（.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月25日 4:16 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/brkypg2370/djy/blob/master/gb/19/10/24/n11610348.md#1" target="_blank">全球千所大学排名 新泽西州6校上榜</a><br></h3>《美国新闻与世界报导》（U.S. News and World Report）最近发布了对非洲、亚洲、欧洲、北美、拉丁美洲和澳大利亚州近1,500所大学的全球排名。这份2020年排名名单比今年早些时候公布的美国大学排名更注重国际学术研究，所以排名顺序有所不同。例如位于新泽西州的普林斯顿大学，全美排名第一，但全球排名第八.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月25日 4:13 AM			</td></tr>
