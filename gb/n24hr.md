@@ -11,25 +11,7 @@
 <tr><td><h3><a href="https://github.com/brkypg2370/djy/blob/master/gb/19/10/24/n11610544.md#1" target="_blank">维州打开了澳大利亚的安全“后门”</a><br></h3><a href="https://github.com/brkypg2370/djy/blob/master/gb/19/10/24/n11610544.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/GettyImages-467683830-150x120.jpg" align ="left"></a>本周，维州州长安德鲁斯（Daniel Andrews）再次访华，与他口中的“好朋友”进行深度合作。10月23日，安德鲁斯与中共发改委副主任宁吉哲签署了共同推进“一带一路”建设的框架协议，二人还出席了签署莫纳什大学与中国商用飞机有限责任公司建立研发中心协议的仪式。
 
 在安德鲁斯宣布访华前，澳洲安全专家担忧其与中共过从.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月25日 7:53 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/brkypg2370/djy/blob/master/gb/19/10/24/n11610606.md#1" target="_blank">组图：纽约摄影器材博览会在贾维茨中心举行</a><br></h3><a href="https://github.com/brkypg2370/djy/blob/master/gb/19/10/24/n11610606.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/1910241723231973-150x120.jpg" align ="left"></a>2019年10月24-26日，纽约国际摄影器材博览会（PHOTOPLUS）在纽约曼哈顿贾维茨中心举行。
-
-200多家参展商和影像硬件软件及配件品牌，以展示摄影和电影界的最新技术，在其展位上进行免费的教育演讲，并提供产品和服务。
-
-
-同时在展厅内举办一系列展览。
-
-
-
-
-
-
-
-
-
-
-
-
-.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月25日 7:52 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/brkypg2370/djy/blob/master/gb/19/10/24/n11610606.md#1" target="_blank">组图：2019纽约国际摄影器材博览会</a><br></h3><a href="https://github.com/brkypg2370/djy/blob/master/gb/19/10/24/n11610606.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/1910241723231973-150x120.jpg" align ="left"></a>一年一度的纽约国际摄影器材博览会（PDN PhotoPlus）于2019年10月24日至26日在纽约曼哈顿贾维茨中心举行，吸引了200多商家参展。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月25日 7:52 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/brkypg2370/djy/blob/master/gb/19/10/24/n11610335.md#1" target="_blank">三天两“电老虎”被查 曾在华电集团搭档多年</a><br></h3><a href="https://github.com/brkypg2370/djy/blob/master/gb/19/10/24/n11610335.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/yungongmin-Web-Banner-1200x800-v3-150x120.jpg" align ="left"></a>中共两央企前高管（相当于副部级）的中国南方电网有限责任公司（简称南方电网）前董事长、党组书记李庆奎和中国华电集团有限公司（简称称华电集团）前党组副书记、总经理云公民近3天内接连被查。云公民和李庆奎曾在华电集团作为总经理、副总经理搭班5年多。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月25日 7:34 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/brkypg2370/djy/blob/master/gb/19/10/24/n11610458.md#1" target="_blank">戈壁东：陈彦霖之死 中共军警是罪犯</a><br></h3><a href="https://github.com/brkypg2370/djy/blob/master/gb/19/10/24/n11610458.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/HKDJY20191014A01_CUT-600x400-2-150x120.jpg" align ="left"></a>香港15岁抗议女孩陈彦霖的海上浮尸被发现后，最初呈现的信息是游泳健将、性格活泼开朗、抗议人士、发现时尸体组织还有弹性等，各界皆指向陈彦霖是被谋杀后弃尸。但香港警方在疑点重重下，快速火化了尸体。这种极其违反正常法理的行为，清晰地显示了香港警察在急迫掩盖什么。
 
@@ -638,8 +620,6 @@ NBA新赛季在10月22日（周二）拉开帷幕。每名多伦多猛龙队球�
 <tr><td><h3><a href="https://github.com/brkypg2370/djy/blob/master/gb/19/10/22/n11605303.md#1" target="_blank">王岐山同赵小兰窃窃私语 视频热传</a><br></h3><a href="https://github.com/brkypg2370/djy/blob/master/gb/19/10/22/n11605303.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/EHfVlrJU4AImNJN-150x120.jpeg" align ="left"></a>一段中国国家副主席王岐山和美国运输部长赵小兰，在22日日王德仁的正式即位仪式上窃窃私语的视频在网络上热传。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月23日 1:30 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/brkypg2370/djy/blob/master/gb/19/10/22/n11604652.md#1" target="_blank">20年悲苦 九死一生 湖南七旬老人再遭绑架</a><br></h3><a href="https://github.com/brkypg2370/djy/blob/master/gb/19/10/22/n11604652.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/11-11-150x120.jpg" align ="left"></a>7月24日，湖南省郴州市法轮功学员雷安祥被北湖区国保大队警察绑架，之后被非法拘禁于一九八医院，至今已逾3个月。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月23日 1:20 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/brkypg2370/djy/blob/master/gb/19/10/22/n11605261.md#1" target="_blank">彭斯透露美太空战略：和热爱自由国家合作</a><br></h3><a href="https://github.com/brkypg2370/djy/blob/master/gb/19/10/22/n11605261.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/Pence-e1571686119775-700x420-150x120.jpg" align ="left"></a>副总统迈克·彭斯（Mike Pence）于周一（10月21日）表示，美国太空部队将很快成为现实。对它的定位将是维护美国及其“热爱自由”盟友在太空的权利以及其它优先级国家安全事项。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月23日 1:12 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/brkypg2370/djy/blob/master/gb/19/10/22/n11605191.md#1" target="_blank">“香港坦克人”与民阵获2019公民力量奖</a><br></h3><a href="https://github.com/brkypg2370/djy/blob/master/gb/19/10/22/n11605191.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/cf203d455ece43fb0f4161369992fe72-150x120.png" align ="left"></a>10月21日在美国国会大厦内，国会议员吉姆·麦高文（Jim McGovern）和克里斯·史密斯（Chris Smith）将2019年度公民力量奖﹐分别颁发给香港民间人权阵线和被称为“香港坦克人”的传教人安东尼﹐表彰他们在反送中运动中所彰显出的港人精神。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月23日 1:00 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/brkypg2370/djy/blob/master/gb/19/10/22/n11605263.md#1" target="_blank">人民大学报告：贸易战恐严重冲击中国就业</a><br></h3><a href="https://github.com/brkypg2370/djy/blob/master/gb/19/10/22/n11605263.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2018/12/GettyImages-1064360130-150x120.jpg" align ="left"></a>中国人民大学国家发展与战略研究院最新发布报告表示，中国宏观经济下行压力并没有减缓，未来一段时间，中美贸易摩擦恐严重冲击中国就业。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月23日 12:52 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/brkypg2370/djy/blob/master/gb/19/10/25/n11610725.md#1" target="_blank">加州屋主持房更久 近10年延长全美最高</a><br></h3>据房产数据提供商Attom的“房屋持有时间”调查，在全美50个人口最密集的大都会区中，加州5个都会区的“房屋持有时间”从2009年到2019年的10年间，增幅排到全美前5名。
 
 报告说，2019年全美50个都会区的“房屋持有时间”平均为8年，相比10年前增长了3.6年。而加州5个大都会区“房屋持有时间”从10年前略.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月25日 8:23 AM			</td></tr>
