@@ -619,14 +619,6 @@ Baby Hug 4 in 1多功能睡篮：4大难题，1.........<br><img align="bottom" 
 
 据悉尼晨锋报报导，主持这项研究的麦觉理大学（Macquarie University）环境科学教授泰勒（Mark Taylor）表示.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月24日 12:54 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/rdngdq252/djy/blob/master/gb/7/12/2/n1921840.md#1" target="_blank">艺术的时空之旅（三）黑暗与光明</a><br></h3><a href="https://github.com/rdngdq252/djy/blob/master/gb/7/12/2/n1921840.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2006/09/609280001351227-150x120.jpg" align ="left"></a>一幅画中得有深色，但在大多数情况下，这种深色是以衬托光明为存在意义的。艺术家是表达心灵光明的美丽使者，而这种光明是神所赐予的。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月24日 12:52 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/rdngdq252/djy/blob/master/gb/19/10/24/n11608503.md#1" target="_blank">悉尼剩余巴士服务将被私有化 工会反对</a><br></h3><a href="https://github.com/rdngdq252/djy/blob/master/gb/19/10/24/n11608503.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2015/03/1503250639002124-150x120.jpg" align ="left"></a>澳大利亚新州政府计划将悉尼最后三个区——东区、北海岸和西北区的巴士服务私有化。工会指责，政府的举动是“严重的背叛”行为，因为自由党在选举前对此只字未提。
-
-此番巴士服务私有化的区域涉及巴士七区、八区、九区。七区覆盖的范围包括赖德（Ryde）在内的西北区、八区包括下北岸和北海滩、九区是东区。这些地区的巴士线路很多，许.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月24日 12:50 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/rdngdq252/djy/blob/master/gb/19/10/24/n11608518.md#1" target="_blank">俄勒冈会议中心重新揭幕</a><br></h3><a href="https://github.com/rdngdq252/djy/blob/master/gb/19/10/24/n11608518.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/15d07f7b5f2d768f_ttl7day8Ew_OregonConventionCenter-150x120.jpg" align ="left"></a>俄勒冈会议中心（Oregon Convention Center）经过长达14个月的翻新后将于近日揭幕。
-
-翻新后的会议中心看起来拥有更多的俄勒冈元素：黑色和灰色的地毯上有绿色斑点，看起来像地衣。工作人员表示，新的宴会厅天花板的灵感来自森林。天花板上的木板条是按照喀斯喀特山脉的地形图的形状设计的。
-
-作为花费4.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月24日 12:46 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/rdngdq252/djy/blob/master/gb/19/10/26/n11613983.md#1" target="_blank">9月份渥太华通胀率2.1％ 全国1.9％</a><br></h3>加拿大统计局10月16日公布的数据显示，渥太华的年度通货膨胀率连续第二个月保持在2.1%，反映出全国其它地区的稳定趋势。
 
 在全国范围内，9月份的通货膨胀率是1.9%，接近加拿大央行设定的2%的目标，但是低于经济学家的预期的2.1%。
@@ -982,14 +974,4 @@ Bellingham市.........<br><img align="bottom" src="http://www.epochtimes.com/ass
 <tr><td><h3><a href="https://github.com/rdngdq252/djy/blob/master/gb/19/10/24/n11608552.md#1" target="_blank">AMP公司前律师称被不当解雇 索赔250万</a><br></h3>爆料澳洲财富管理公司——AMP光收钱却不提供服务的资深律师，已向该公司发起了法律诉讼，索赔250万澳元。她声称，在为该公司工作期间曾被霸凌、骚扰，并被不公平解雇。
 
 据悉尼晨锋报报导，库克（Larissa Baker Cook）在AMP公司任职期间的工作包括：管理该公司与企业监管机构的关系，以及参与独立调查委员会的.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月24日 12:52 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/rdngdq252/djy/blob/master/gb/19/10/24/n11608534.md#1" target="_blank">企业主促西雅图市议会投资公共安全</a><br></h3>10月22日下午5点30分，西雅图预算委员会在市政厅举行了公开听证会，听取公众对2020年财政预算中是否应增加某些特定公共安全项目投资的意见。
-
-在此之前，大约有160个西雅图企业主和社区团体致函市议会。信中对西雅图如今的刑事司法系统表示失望，提出该系统应该为所有人服务，并要求市议员对市检察官办公室实行监督权。
-.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月24日 12:48 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/rdngdq252/djy/blob/master/gb/19/10/24/n11608504.md#1" target="_blank">澳前情报官被控犯保密法 妻被疑为中共间谍</a><br></h3>一名澳洲前外交官、政府高级情报官员被澳洲联邦警察（AFP）指控违犯保密法，已在首都行政区地方法庭出庭。此人的华裔妻子曾因贿赂联合国最高官员入狱，并被怀疑为中共间谍。
-
-前澳洲外交官、高级情报官员尤伦（Roger Uren）于上周被捕。他被控多项违犯情报服务法、未经授权私自处理机密文件的罪名。据知情人士透露，对尤伦的.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月24日 12:45 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/rdngdq252/djy/blob/master/gb/19/10/24/n11608512.md#1" target="_blank">西雅图莫里斯被评为年度最佳复出球员</a><br></h3>10月22日（星期二），美国职业足球大联盟（Major League Soccer，简称MLS）宣布，西雅图海湾人足球队（Seattle Sounders FC）前锋乔丹·莫里斯 （Jordan Morris）被评为2019年年度最佳复出球员。
-
-2018年，莫里斯因为前交叉韧带撕裂缺席了该年度的全部比赛。2019.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月24日 12:39 PM			</td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/rdngdq252/djy/blob/master/gb/n24hr.md#1<br><a href="https://github.com/rdngdq252/djy/blob/master/gb/n24hr.md#1"><img src="http://www.hehaibao.com/qr/index.php?m=1&e=L&p=10&t=&d=https://github.com/rdngdq252/djy/blob/master/gb/n24hr.md%231" title="分享本文章"></a><br>原文地址： <a href="http://www.epochtimes.com/gb/n24hr.htm">http://www.epochtimes.com/gb/n24hr.htm</a>    （国内需<a href="https://git.io/JesJV">下载翻墙软件</a>才能访问）</p>
