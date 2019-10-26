@@ -603,14 +603,6 @@ Baby Hug 4 in 1多功能睡篮：4大难题，1.........<br><img align="bottom" 
 <tr><td><h3><a href="https://github.com/rdngdq252/djy/blob/master/gb/19/10/24/n11608695.md#1" target="_blank">YAPA培训青少年参政意识   吸引硅谷学生参与（下）</a><br></h3><a href="https://github.com/rdngdq252/djy/blob/master/gb/19/10/24/n11608695.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/tu3-Michael-Goldman-150x120.jpg" align ="left"></a>美国青年政策倡导者（YAPA,https://www.yapadvocates.org）表示，该组织为青少年提供一个平台，让他们践行领导力，有机会就其关注的时事和政策，向立法者及公民领袖学习并交换意见。
 
 该组织目前吸引的学生来自湾区各地，除了硅谷库柏蒂诺，还有萨拉托加、圣荷西、菲利蒙、洛斯阿图、桑尼维尔、圣马刁和.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月24日 2:05 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/rdngdq252/djy/blob/master/gb/19/10/24/n11608676.md#1" target="_blank">涉大学招生丑闻  女星罗琳面临追加指控</a><br></h3><a href="https://github.com/rdngdq252/djy/blob/master/gb/19/10/24/n11608676.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/GettyImages-1134735481-1-150x120.jpg" align ="left"></a>女星洛莉?罗琳（Lori Loughlin）及丈夫莫西墨?嘉奴里（Mossimo Giannulli），因贿赂南加州大学（USC）官员、以便造假为女儿以运动员的履历获得入学先机的追加指控，受类似指控的还有另外10位家长。
- 
-美国最高检察官办公室10月22日宣布，位于波士顿（Boston）的联邦大陪审团决定，向认罪.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月24日 1:53 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/rdngdq252/djy/blob/master/gb/19/10/24/n11608649.md#1" target="_blank">寻找最佳停车位的策略？</a><br></h3><a href="https://github.com/rdngdq252/djy/blob/master/gb/19/10/24/n11608649.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/Fotolia_28537376_Subscription_L-150x120.jpg" align ="left"></a>现在是星期六下午，你要到在商场购物。而且，好像很多人也有同样的安排。购物中心停车场很拥挤。因此，如果你想节省时间，应该将车停在哪里？你看到的第一个空位上（无论距离入口有多远）？或者继续寻找距离商场入口更近的车位？
-
-&nbsp;
-
-有人对此专门做了一个研究，在2019年9月发表于《统计力学》杂志上的一项研究中.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月24日 1:52 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/rdngdq252/djy/blob/master/gb/19/10/26/n11613236.md#1" target="_blank">【翻墙必看】四中全会前 中共高官异动不寻常</a><br></h3>四中全会前的杂音，传递的是中共高层博弈相当激烈，会议期间绝不会平静。而李纪恒的“另有任用”似乎说明本次会议确实可能涉及人事问题。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月26日 9:21 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/rdngdq252/djy/blob/master/gb/19/10/26/n11613983.md#1" target="_blank">9月份渥太华通胀率2.1％ 全国1.9％</a><br></h3>加拿大统计局10月16日公布的数据显示，渥太华的年度通货膨胀率连续第二个月保持在2.1%，反映出全国其它地区的稳定趋势。
 
@@ -927,14 +919,4 @@ Zillo.........<br><img align="bottom" src="http://www.epochtimes.com/assets/them
 <tr><td><h3><a href="https://github.com/rdngdq252/djy/blob/master/gb/19/10/24/n11608622.md#1" target="_blank">碧桂园马国欠薪遭抗议 “中建”被要求还钱</a><br></h3>大陆著名地产商碧桂园在马来西亚的一个投资项目日前传出拖欠供应商和承包商款项及建筑工人工资遭抗议的消息，相关抗议的视频在网上流传。碧桂园回应缘起主包商中建与旗下分包商之纠纷。有被欠款供应商表示，希望主承包商“中国建筑第二工程局”能早日解决拖欠问题。
 
 10月17日推特上的一段视频显示，一群貌似外籍的建筑工人拉起写着“.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月24日 3:02 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/rdngdq252/djy/blob/master/gb/19/10/24/n11608693.md#1" target="_blank">汽车维修问与答：暖车后冒白烟不正常</a><br></h3>汽车维修问与答
-
-读者威儒问：李师傅您好，小弟姓周，小弟爱驱是奥迪A4 1.8T ，怠速常发现后排气管冒出大量白烟，味道闻起来不像水蒸气的味道，不确定机油是否有减少，因也刚好到保养的周期了，所以机油减少也是正常的（？）
-
-所以请问是油封出问题还是汽缸垫片出问题？一般来说价位大概落在哪里？
-李进答：威儒您好，冷.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月24日 2:02 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/rdngdq252/djy/blob/master/gb/19/10/24/n11608662.md#1" target="_blank">经商便利度退步2名 台国发会：因营所税调高</a><br></h3>世界银行（World Bank）24日发布《2020经商环境报告》（Doing Business 2020），台湾在全球190个主要国家及经济体中，经商便利度（EoDB）排名第15名，相较2018年退步2名，但与2017年相同。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月24日 1:58 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/rdngdq252/djy/blob/master/gb/19/10/24/n11608681.md#1" target="_blank">埃弗里特市再次考虑安装交通摄像头</a><br></h3>位于西雅图北部的埃弗利特市（Everett）正在重新考虑在4个交叉路口和Evertt南部的一所学校外安装交通监控摄像头。
-
-据埃弗利特的《先驱日报》（The Daily Herald）10月21日报导，安装交通监控摄像头的计划早在2009年就已提出。市政府当时签下了一笔为期5年，总额为200万美元的合同，用于购买并.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月24日 1:55 PM			</td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/rdngdq252/djy/blob/master/gb/n24hr.md#1<br><a href="https://github.com/rdngdq252/djy/blob/master/gb/n24hr.md#1"><img src="http://www.hehaibao.com/qr/index.php?m=1&e=L&p=10&t=&d=https://github.com/rdngdq252/djy/blob/master/gb/n24hr.md%231" title="分享本文章"></a><br>原文地址： <a href="http://www.epochtimes.com/gb/n24hr.htm">http://www.epochtimes.com/gb/n24hr.htm</a>    （国内需<a href="https://git.io/JesJV">下载翻墙软件</a>才能访问）</p>
