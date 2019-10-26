@@ -31,9 +31,12 @@
 丁伟的死亡.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月24日 3:47 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/rdngdq252/djy/blob/master/gb/19/10/24/n11608723.md#1" target="_blank">约翰·杜威如何利用“公共教育”破坏自由</a><br></h3><a href="https://github.com/rdngdq252/djy/blob/master/gb/19/10/24/n11608723.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/20191024_shouhuihsu_john-dewey_5279010141_575ae0396f_k_01-150x120.jpg" align ="left"></a>当人本主义者约翰·杜威（John Dewey）和他的追随者开始接掌运行了数十年、试图转向集体主义的政府教育体系时，这台缺乏经验的机器才刚起步。然而，到了杜威1952年离开人世时，它已是一部运作良好的集体主义机器，它超越了以往所能想像的任何力量，有效地抹灭了美国的宗教以及知识与政治的遗产。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月24日 2:24 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/rdngdq252/djy/blob/master/gb/19/10/24/n11608372.md#1" target="_blank">王友群：国际正义力量源源不断汇聚香港</a><br></h3><a href="https://github.com/rdngdq252/djy/blob/master/gb/19/10/24/n11608372.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/000_1JR83C-600x400-150x120.jpg" align ="left"></a>6月香港反送中运动爆发以来，为自由、民主、人权、法治抗争的香港人，不顾中共持续不断的暴力镇压，不屈不饶，站在对抗中共极权的最前沿，书写了香港历史上、中国历史上、人类历史上，可歌可泣的伟大历史篇章。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月24日 11:45 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/rdngdq252/djy/blob/master/gb/19/10/24/n11608292.md#1" target="_blank">袁斌：李锐日记究竟有何中共害怕曝光的黑幕</a><br></h3><a href="https://github.com/rdngdq252/djy/blob/master/gb/19/10/24/n11608292.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/ac9b6ed916aff836f33a23177dd426d6-150x120.jpg" align ="left"></a>中共元老李锐于今年2月16日以高龄101岁去世。
-
-生前，他女儿李南央遵照李锐的嘱托，将约1000万字、时间跨度83年的《李锐日记》和其它重要史料，捐赠给了斯坦福大学胡佛研究所。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月24日 10:56 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/rdngdq252/djy/blob/master/gb/19/10/26/n11613456.md#1" target="_blank">陈达：红朝大外宣音乐会指挥掉裤子的象征意义</a><br></h3>红朝伪国庆，全球闹哄哄。
+邪党临末日，哄闹掩乱挣。
+统战大外宣，音抖寒蝉鸣。
+形势吹大好，效应多笑应。
+党要再扩音，淹没港枪声。
+音乐会指挥，肚子腆生猛。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月26日 1:05 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/rdngdq252/djy/blob/master/gb/19/10/25/n11612888.md#1" target="_blank">游兆和：共产主义为什么要消灭哲学？（一）</a><br></h3>共产主义要消灭哲学，这恐怕是许多人都不曾想到的，但这却是真实存在的。本文旨在探讨哲学本质及共产主义的反哲学本质，以期说明哲学何以是一门具有理性根基与神学底蕴的学科，而共产主义又何以要消灭哲学。有不妥之处，还请指正。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月26日 5:34 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/rdngdq252/djy/blob/master/gb/19/10/25/n11611135.md#1" target="_blank">金浴凤：如果明日就变天</a><br></h3>不测风云偶然掠，不速之客黑天鹅；
 历史大戏要揭锅，非常时刻勿执著；
