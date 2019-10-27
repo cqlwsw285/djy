@@ -522,6 +522,13 @@ Baby Hug 4 in 1多功能睡篮：4大难题，1.........<br><img align="bottom" 
 <tr><td><h3><a href="https://github.com/rdngdq252/djy/blob/master/gb/19/10/24/n11610491.md#1" target="_blank">视频：千钧一发之际 “天使”救了一家人</a><br></h3><a href="https://github.com/rdngdq252/djy/blob/master/gb/19/10/24/n11610491.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/Screen-Shot-2019-10-24-at-6.06.29-PM-e1571955036656-150x120.png" align ="left"></a>一名亚利桑那州司机被警察称赞为“天使”，她挽救了穿越人行横道的一对夫妇和一名婴儿的性命。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月25日 6:51 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/rdngdq252/djy/blob/master/gb/19/10/24/n11610511.md#1" target="_blank">彭斯批评中共输出言论审查 力挺台湾</a><br></h3><a href="https://github.com/rdngdq252/djy/blob/master/gb/19/10/24/n11610511.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/000_1LP5EQ-150x120.jpg" align ="left"></a>周四（10月24日），美国副总统彭斯发表了上任以来的第二次对华演讲。他谴责中共诱使台湾邦国与台断交，并称赞台湾是中华文化和民主的灯塔。他同时也表达了美国对台湾和香港的坚定支持。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月25日 6:44 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/rdngdq252/djy/blob/master/gb/19/10/24/n11610495.md#1" target="_blank">四中全会后 北京或撤换中联办王志民</a><br></h3><a href="https://github.com/rdngdq252/djy/blob/master/gb/19/10/24/n11610495.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/20180423-LC-Poon-17_gray-150x120.jpg" align ="left"></a>“反送中”运动至今逾四个月。面对香港社会抗争运动遍地开花，西方制裁力度加大，中共处于内忧外患之中。继英国《金融时报》引述消息人士报导称明年3月北京将用“替代特首”的方式，换掉现任特首林郑月娥之后，有接近中南海的消息人士向《大纪元》透露，指挥林郑挑起香港乱局的中联办主任王志民、港澳办主任张晓明也将面临被清算。其中中联办主.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月25日 6:20 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/rdngdq252/djy/blob/master/gb/19/10/27/n11615000.md#1" target="_blank">云鹤天：一七令?红朝</a><br></h3>脓。
+酒绿，灯红。
+寻美色，嗅芳踪。
+捞钱手段，各不相同。
+小官钱袋鼓，个个赛蝗虫。
+巨腐巨贪更甚，国家国库掏空。
+腰缠万贯闯地狱，一路狂奔近乎疯。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月27日 1:49 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/rdngdq252/djy/blob/master/gb/19/10/27/n11614921.md#1" target="_blank">唐浩：见证</a><br></h3>西来邪灵百年狂
   涂炭迷众神州殇
   吞骨噬血八千万
