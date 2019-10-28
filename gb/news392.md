@@ -21,7 +21,18 @@
 <tr><td><h3><a href="https://github.com/nevvg2846/djy/blob/master/gb/19/10/26/n11614480.md#1" target="_blank">海风：从香港“反送中”看媒体良知</a><br></h3><a href="https://github.com/nevvg2846/djy/blob/master/gb/19/10/26/n11614480.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/15c58f2006535c5f_ttl7dayLTg_e7acd9e5d24cde80-600x400-1-150x120.jpg" align ="left"></a>从今年6月9日开始，香港反送中运动已经持续近5个月了，这场抗争不仅是港人反中共暴政的角力场，更是国际舆论的一个大战场。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月27日 5:42 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/nevvg2846/djy/blob/master/gb/19/10/26/n11614470.md#1" target="_blank">颜丹：由英国为偷渡者降半旗想到的</a><br></h3><a href="https://github.com/nevvg2846/djy/blob/master/gb/19/10/26/n11614470.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/GettyImages-1177747868-1-600x400-1-150x120.jpg" align ="left"></a>看着浩浩荡荡、奔向海外的中国移民大军、难民大军，全世界都不难想像，中共到底是一种怎样的存在。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月27日 4:02 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/nevvg2846/djy/blob/master/gb/19/10/26/n11613726.md#1" target="_blank">程晓容：四中全会在即 彭斯演讲触痛中共</a><br></h3><a href="https://github.com/nevvg2846/djy/blob/master/gb/19/10/26/n11613726.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/1605241527572483-150x120.jpg" align ="left"></a>中共高层和喉舌媒体人员想必全程观看了彭斯的演说。美国的奇迹展现了传统与信仰的力量。反观中国，中共摧毁砸烂传统文化，社会道德急剧下滑，乱象丛生。这其中的启示便是：一个人，一个国家，必须走在正确的道路上，才能走向希望和光明。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月26日 4:58 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/nevvg2846/djy/blob/master/gb/19/10/26/n11613161.md#1" target="_blank">李铭：一朝行恶 终生难逃法网</a><br></h3><a href="https://github.com/nevvg2846/djy/blob/master/gb/19/10/26/n11613161.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/1601261714542382-600x400-150x120.jpg" align ="left"></a>日前近百岁纳粹警卫在德国受审的新闻，引人瞩目。十月十七日，汉堡法庭审理了一桩纳粹警卫的案子，93岁的老翁布鲁诺·约翰内斯·D.（Bruno Johannes D.）被指控在五千多起谋杀案中扮演了帮凶的角色。因为他18岁时在司徒特霍夫（Stutthof）纳粹集中营担任警卫，是“杀人机器上的小齿轮”。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月26日 12:28 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/nevvg2846/djy/blob/master/gb/19/10/28/n11616906.md#1" target="_blank">一位美籍华人给彭斯副总统的一封公开信</a><br></h3>彭斯副总统，您好！
+我作为一个在中国大陆生活了几十年现在又是美国公民的人，为了中美两国人民的利益想与您说说心里话。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月28日 12:35 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/nevvg2846/djy/blob/master/gb/19/10/28/n11616882.md#1" target="_blank">祝君安：蟪蛄不知春秋  专制不懂民主</a><br></h3>红色专制政权
+它们
+从附体对方学会了强大自己
+从渗透对方学会了瓦解别人
+学会了用欺骗手段拉人上贼船
+用整风诛心控制大众
+用借助外力打败敌人
+因而形成了一个自私邪恶魔兽怪胎
+它们一定会把传统信仰儒释道消灭......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月28日 12:20 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/nevvg2846/djy/blob/master/gb/19/10/28/n11616763.md#1" target="_blank">项云：中共从未认为神州江山是中国人民的</a><br></h3>中共宣称建国七十年，仿佛以前五千年都不是这个国家。中共第一代认为江山是他们打下来的。中共第一代元老相继死去，红二代认为中国现在的江山是他们家的江山。曾有个红二代赤裸裸说：怎么折腾都行，但我们一定防止那些“异想天开”的人，企图把江山和政权交给老百姓，如赵紫阳和胡耀邦之流，天下是我们的。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月28日 12:12 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/nevvg2846/djy/blob/master/gb/19/10/28/n11616518.md#1" target="_blank">高婧婧：从台湾“新南向政策”预测蔡英文连任</a><br></h3>在中美贸易战背景下，多数国家，尤其是对大陆市场依赖严重的经济体下修经济增长率之时，台湾经济GDP则逆向成长，无疑给多年不景气的台湾经济一针强心针，也预示着明年台湾大选蔡英文毫无疑问会连任。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月28日 9:40 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/nevvg2846/djy/blob/master/gb/19/10/28/n11616490.md#1" target="_blank">云鹤天：《七律?人民解放军占领南京》新解</a><br></h3>红朝盛行毒赌黄
 淫乱之首属老江
@@ -50,18 +61,5 @@
 <tr><td><h3><a href="https://github.com/nevvg2846/djy/blob/master/gb/19/10/27/n11614892.md#1" target="_blank">游兆和：共产主义为什么要消灭哲学（二）</a><br></h3>共产主义要消灭哲学，这恐怕是许多人都不曾想到的，但这却是真实存在的。本文旨在探讨哲学本质及共产主义的反哲学本质，以期说明哲学何以是一门具有理性根基与神学底蕴的学科，而共产主义又何以要消灭哲学。有不妥之处，还请指正。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月27日 12:35 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/nevvg2846/djy/blob/master/gb/19/10/26/n11614464.md#1" target="_blank">程凯：赵紫阳墓地</a><br></h3>10月18日，赵紫阳诞辰100周年的第二天，他的子女将他安葬于北京郊区昌平天寿陵园的一块墓地。这一天，正如人们所预料的那样，当局如临大敌，从北京东城到昌平沿线60公里路上，有警车密集巡逻；距离墓地几公里之外便布满岗哨，禁止人们接近，只有赵紫阳的家人和少数亲友能够到达陵园参加葬礼；与赵紫阳关系密切的赵紫阳时代中共中央政治.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月27日 4:44 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/nevvg2846/djy/blob/master/gb/19/10/26/n11614427.md#1" target="_blank">王友群：中共政法（监狱）大骗局四揭密</a><br></h3>中共政法系统的基本构架是：中央政法委书记管公安部长、最高检察院检察长、最高法院院长、司法部长。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月27日 4:18 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/nevvg2846/djy/blob/master/gb/19/10/26/n11613471.md#1" target="_blank">云鹤天：一七令?灭共导火索</a><br></h3>祥。
-美丽，香江。
-红魔党，耍流氓。
-如今香港，满目创伤。
-月娥林郑氏，听命党中央。
-抗暴大潮汹涌，邪灵恐惧惊慌。
-共匪自点导火索，天怒人怨捣红墙。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月26日 1:11 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/nevvg2846/djy/blob/master/gb/19/10/26/n11613456.md#1" target="_blank">陈达：红朝大外宣音乐会指挥掉裤子的象征意义</a><br></h3>红朝伪国庆，全球闹哄哄。
-邪党临末日，哄闹掩乱挣。
-统战大外宣，音抖寒蝉鸣。
-形势吹大好，效应多笑应。
-党要再扩音，淹没港枪声。
-音乐会指挥，肚子腆生猛。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月26日 1:05 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/nevvg2846/djy/blob/master/gb/news392.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/nevvg2846/djy/blob/master/gb/news392_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/nevvg2846/djy/blob/master/gb/news392_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/nevvg2846/djy/blob/master/gb/news392_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/nevvg2846/djy/blob/master/gb/news392_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/nevvg2846/djy/blob/master/gb/news392_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/nevvg2846/djy/blob/master/gb/news392_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/nevvg2846/djy/blob/master/gb/news392_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/nevvg2846/djy/blob/master/gb/news392_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/nevvg2846/djy/blob/master/gb/news392_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/nevvg2846/djy/blob/master/gb/news392_2.md#1">下一页</a></h3></td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/nevvg2846/djy/blob/master/gb/news392.md#1<br><a href="https://github.com/nevvg2846/djy/blob/master/gb/news392.md#1"><img src="http://www.hehaibao.com/qr/index.php?m=1&e=L&p=10&t=&d=https://github.com/nevvg2846/djy/blob/master/gb/news392.md%231" title="分享本文章"></a><br>原文地址： <a href="http://www.epochtimes.com/gb/news392.htm">http://www.epochtimes.com/gb/news392.htm</a>    （国内需<a href="https://git.io/JesJV">下载翻墙软件</a>才能访问）</p>
