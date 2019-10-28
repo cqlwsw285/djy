@@ -8,7 +8,7 @@
 多伦多警方发言人Caroline de Kloet告诉《大纪元》：“刘清莲是中国留学生，她来加拿大不到5年时间。刘清莲于9月19日在亚伯塔省（Alberta）被亚省警方找到.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月29日 2:35 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/nevvg2846/djy/blob/master/gb/19/10/28/n11618347.md#1" target="_blank">倾听心声 大温台湾侨界邀年轻人畅谈?</a><br></h3><a href="https://github.com/nevvg2846/djy/blob/master/gb/19/10/28/n11618347.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/IMG_6735-150x120.jpg" align ="left"></a>当今的世事政局纷乱繁杂，年轻人面对这个复杂的社会，他们是怎么思考的，他们有什么想法呢？大温哥华台湾侨界联合会10月27日举办了一场别开生面的研讨会，倾听年轻人的心声与想法。
 
-主办者是大温台湾侨界联合会主席蔡春松和张理玱，他们提议说，近日香港反送中事件中，香港反送中年轻人的表现刮目相看，透过香港事件他们逐渐站在了世.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月29日 2:35 AM			</td></tr>
+主办者是大温台湾侨界联合会主席蔡春松和张理玱，他们提议说，近日香港反送中事件中，年轻人表现的令人刮目相看，透过香港事件他们逐渐站在了世界舞台.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月29日 2:35 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/nevvg2846/djy/blob/master/gb/19/10/28/n11618321.md#1" target="_blank">【无鱼坊的摄影心视界】树上喇叭也牵牛</a><br></h3><a href="https://github.com/nevvg2846/djy/blob/master/gb/19/10/28/n11618321.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/364185_medium-150x120.jpg" align ="left"></a>树牵牛又称印度旋花、树朝颜、粗茎牵牛、大本牵牛花。小灌木高可达3公尺。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月29日 2:33 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/nevvg2846/djy/blob/master/gb/19/10/28/n11618164.md#1" target="_blank">不只瓜子 向日葵一身是宝 降血压止痛9种妙用</a><br></h3><a href="https://github.com/nevvg2846/djy/blob/master/gb/19/10/28/n11618164.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/sunflower-seed-1028-150x120.jpg" align ="left"></a>葵花又叫向日葵，是向往光明之花，它全身是宝，其种子、花盘、茎叶、茎髓、根、花等均可入药。关于葵花的食用部分，人们最熟悉的就是葵瓜子。葵瓜子含丰富的不饱和脂肪酸、优质蛋白质、钾、磷、钙、镁、硒元素及维生素E、维生素B1等营养元素。向日葵的9种养生食疗方：古时百姓已懂得运用手边的食材，烹饪出保养身体预防疾病的膳食。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月29日 2:33 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/nevvg2846/djy/blob/master/gb/19/10/28/n11618281.md#1" target="_blank">英国大学撤回何君尧荣誉博士学位</a><br></h3><a href="https://github.com/nevvg2846/djy/blob/master/gb/19/10/28/n11618281.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/GettyImages-1169918560-600x399-150x120.jpg" align ="left"></a>英国安格里亚鲁斯金大学（Anglia Ruskin University）在公众压力下，召开夜间会议，决定撤销香港亲共议员何君尧的荣誉博士学位。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月29日 2:27 AM			</td></tr>
@@ -481,6 +481,14 @@ CNA是护理类基.........<br><img align="bottom" src="http://www.epochtimes.co
 
 在18日提交给市议员的详细备忘录中，Manconi表示，10月13日达到300万人次的乘客，是一个重要里程碑，“这个乘坐量显示出轻铁.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月26日 8:07 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/nevvg2846/djy/blob/master/gb/19/10/26/n11613794.md#1" target="_blank">【更新】10.26香港医疗专职抗暴集会</a><br></h3><a href="https://github.com/nevvg2846/djy/blob/master/gb/19/10/26/n11613794.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/1910260908332188-150x120.jpg" align ="left"></a>香港民众的多项诉求，港府只撤回《逃犯条例》修订案，一直没有回应其它诉求，港人持续抗争。10月26日，香港医护抗暴，进行医疗专职集会。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月26日 7:46 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/nevvg2846/djy/blob/master/gb/19/10/28/n11618449.md#1" target="_blank">工人被被困在建高楼 消防员高空营救</a><br></h3>多伦多消防员周一（10月28日）在市中心一处公寓建造工地救出了一名困在高楼上的男子。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月29日 3:41 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/nevvg2846/djy/blob/master/gb/19/10/28/n11616353.md#1" target="_blank">多伦多荣光联谊会庆祝荣民节举办餐会</a><br></h3>多伦多荣光联谊会10月26日中午在士嘉堡龙城四海一家餐厅，举办会员大会暨庆祝第42届荣民节餐会。
+
+理事长梅悟轩致词表示除庆祝47届荣民节外，同时缅怀先总统蒋公133岁冥诞，并说明先总统蒋公对荣民的四个期望，第一要坚忍、第二要刻苦、第三要团结，第四要爱国，尤其团结与爱国更是荣民一辈子的职志。
+
+
+
+驻多伦多.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月29日 3:34 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/nevvg2846/djy/blob/master/gb/19/10/28/n11618261.md#1" target="_blank">海网：天灭中共网恢恢</a><br></h3>
 
 图拉吉岛所罗门，七十五年被租赁。
