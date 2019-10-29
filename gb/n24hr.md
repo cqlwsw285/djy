@@ -487,13 +487,6 @@ CNA是护理类基.........<br><img align="bottom" src="http://www.epochtimes.co
 <tr><td><h3><a href="https://github.com/nevvg2846/djy/blob/master/gb/19/10/26/n11613998.md#1" target="_blank">美景引你至户外 舒适让你返室内</a><br></h3><a href="https://github.com/nevvg2846/djy/blob/master/gb/19/10/26/n11613998.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/arrive-crestmont-twilight-living-r1-150x120.jpg" align ="left"></a> 天浮白云，夕照红霞。雪峰冰原，苍松翠柏。这一幅远眺洛基山的美景，造就了卡城最理想的地段──西南区。然而，美丽是有代价的，买主对西南区青眼有加的同时，往往忽略了一个重要事实──昂贵的房价。
 
 好在，这种左右为难的烦恼在 Arrive Crestmont 镇屋平房推出后烟消云散了。上佳的社区，自然的环境，尤其关键的─.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月27日 12:35 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/nevvg2846/djy/blob/master/gb/19/10/26/n11614262.md#1" target="_blank">旧金山湾区一周大事（2019年10月19日～10月25日）</a><br></h3><a href="https://github.com/nevvg2846/djy/blob/master/gb/19/10/26/n11614262.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/1506031835242763-150x120.jpg" align ="left"></a>
-
-【旧金山 东湾】
-
-生活成本高 更多人欲搬离旧金山
-
-旧金山的房价中值达到140万美元。汽油价格每加仑超过4美元，私立学校收费、高档餐厅的消费价格，是全国平均水平的二倍。来自房地产公司Redfin的数据，2019年第2季度有超过28,190人想离开旧金山，大约是2017年的两倍。加州房地产经纪人协会（C.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月27日 12:31 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/nevvg2846/djy/blob/master/gb/19/10/29/n11618741.md#1" target="_blank">安省政府继续用反碳税贴纸</a><br></h3>安省能源厅长表示，政府的反碳税贴纸将继续在全省的加油站展示，因为人们需要知道贴纸上提供的信息。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月29日 7:04 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/nevvg2846/djy/blob/master/gb/19/10/29/n11618762.md#1" target="_blank">大选期间有小量网络假消息 不足以干预大选</a><br></h3>联邦民主机构部长古尔德女士（Karina Gould）在给CBC新闻声明中表示，联邦大选结束后，渥京会采取措施打击网络虚假信息和不实信息传播，在下次大选前，找出问题所在和改进办法。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月29日 6:52 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/nevvg2846/djy/blob/master/gb/19/10/29/n11618698.md#1" target="_blank">省府打算松绑社区食品救助监管</a><br></h3>安省有许多非盈利营养和膳食服务，为学生和社区提供食物，但问题是，这些慈善服务面临的餐饮监管，和正规餐饮连锁店面临的监管并无二致。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月29日 6:14 AM			</td></tr>
