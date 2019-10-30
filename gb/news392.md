@@ -28,13 +28,6 @@
 2000年4月13日凌晨2点，我被一阵猛烈的敲门声惊醒。在我还没反应过来到底发生了什么事时，一个面目狰狞的警察已经站在我房间里。他直接把我拽去了派出所。
 
 后来我问.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月28日 10:34 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/ilwfed2579/djy/blob/master/gb/19/10/30/n11621774.md#1" target="_blank">伍新：中共四中全会的议题实质不过是临死瞎折腾</a><br></h3>伪国国庆闹，请鬼伴阅兵。
-妖魔鬼怪欢，邪灵邪显灵。
-东方鬼节始，西方鬼节终。
-中共四中会，窝里斗眼红。
-维稳战争态，秋封三九冰。
-香港冒牌警，暴恐级提升。
-东西南北中，里外死拼争。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月30日 3:43 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/ilwfed2579/djy/blob/master/gb/19/10/30/n11621477.md#1" target="_blank">学生成绩与班级规模有关系吗？</a><br></h3>如果问一群老师，想教20人还是30人的班级？大部分的老师会选小班级。若两班所有条件都相等，教小班级会比较容易。
 
 然而，每个班级的条件，从来不会完全相等。除了班级规模以外，还有许多因素会影响学生的学习。不过，班级规模似乎总受到过多的关注，消耗了过多的资源。
@@ -89,5 +82,6 @@
 因而形成了一个自私邪恶魔兽怪胎
 它们一定会把传统信仰儒释道消灭......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月28日 12:20 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/ilwfed2579/djy/blob/master/gb/19/10/28/n11616763.md#1" target="_blank">项云：中共从未认为神州江山是中国人民的</a><br></h3>中共宣称建国七十年，仿佛以前五千年都不是这个国家。中共第一代认为江山是他们打下来的。中共第一代元老相继死去，红二代认为中国现在的江山是他们家的江山。曾有个红二代赤裸裸说：怎么折腾都行，但我们一定防止那些“异想天开”的人，企图把江山和政权交给老百姓，如赵紫阳和胡耀邦之流，天下是我们的。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月28日 12:12 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/ilwfed2579/djy/blob/master/gb/19/10/28/n11616518.md#1" target="_blank">高婧婧：从台湾“新南向政策”预测蔡英文连任</a><br></h3>在中美贸易战背景下，多数国家，尤其是对大陆市场依赖严重的经济体下修经济增长率之时，台湾经济GDP则逆向成长，无疑给多年不景气的台湾经济一针强心针，也预示着明年台湾大选蔡英文毫无疑问会连任。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月28日 9:40 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/ilwfed2579/djy/blob/master/gb/news392.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/ilwfed2579/djy/blob/master/gb/news392_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/ilwfed2579/djy/blob/master/gb/news392_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/ilwfed2579/djy/blob/master/gb/news392_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/ilwfed2579/djy/blob/master/gb/news392_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/ilwfed2579/djy/blob/master/gb/news392_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/ilwfed2579/djy/blob/master/gb/news392_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/ilwfed2579/djy/blob/master/gb/news392_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/ilwfed2579/djy/blob/master/gb/news392_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/ilwfed2579/djy/blob/master/gb/news392_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/ilwfed2579/djy/blob/master/gb/news392_2.md#1">下一页</a></h3></td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/ilwfed2579/djy/blob/master/gb/news392.md#1<br><a href="https://github.com/ilwfed2579/djy/blob/master/gb/news392.md#1"><img src="http://www.hehaibao.com/qr/index.php?m=1&e=L&p=10&t=&d=https://github.com/ilwfed2579/djy/blob/master/gb/news392.md%231" title="分享本文章"></a><br>原文地址： <a href="http://www.epochtimes.com/gb/news392.htm">http://www.epochtimes.com/gb/news392.htm</a>    （国内需<a href="https://git.io/JesJV">下载翻墙软件</a>才能访问）</p>
