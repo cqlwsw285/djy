@@ -27,7 +27,11 @@
 
 后来我问.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月28日 10:34 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/ilwfed2579/djy/blob/master/gb/19/10/26/n11614088.md#1" target="_blank">谢田：贸易战的绳套又进一步收紧</a><br></h3><a href="https://github.com/ilwfed2579/djy/blob/master/gb/19/10/26/n11614088.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/1145130342-150x120.jpg" align ="left"></a>美中贸易战第十三轮谈判结束，历经一天半时间，双方就贸易纷争达成“第一阶段协议”。值得注意的是，中共国务院副总理刘鹤在离开美国贸易代表署（USTR）大楼的时候，脸上没有笑容，还差点踩空台阶，因为身后站着中方人员才没有跌倒。随后总统特朗普在白宫接见刘鹤时表示，中美在知识产权、金融服务与农产品采购方面达成了“协议”。中方同意.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月28日 8:38 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/ilwfed2579/djy/blob/master/gb/19/10/27/n11616096.md#1" target="_blank">经济学家：我们该如何处理塑料饮水瓶</a><br></h3><a href="https://github.com/ilwfed2579/djy/blob/master/gb/19/10/27/n11616096.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/07/GettyImages-476865191-150x120.jpg" align ="left"></a>我们会惊叹，怎么会有这么多的装纯净水的塑料瓶？ 简直是成千上万。具体有多少？也许有数十亿，甚至是数万亿？没有人能够说出确切的数字。我也不知道确切的数字，甚至觉得去假设有一个确切的统计数字都会是比较大胆的想法。但我知道，塑料水瓶的数量实在太多了。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月28日 8:25 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/ilwfed2579/djy/blob/master/gb/19/10/30/n11621477.md#1" target="_blank">学生成绩与班级规模有关系吗？</a><br></h3>如果问一群老师，想教20人还是30人的班级？大部分的老师会选小班级。若两班所有条件都相等，教小班级会比较容易。
+
+然而，每个班级的条件，从来不会完全相等。除了班级规模以外，还有许多因素会影响学生的学习。不过，班级规模似乎总受到过多的关注，消耗了过多的资源。
+
+例如，在加拿大安大略省，教师工会已向省政府宣战，这在.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月30日 2:04 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/ilwfed2579/djy/blob/master/gb/19/10/30/n11621401.md#1" target="_blank">吐为快：共妖的治国暴令</a><br></h3>国为党私随意卖，民当家畜器官摘；
 赵家贪囊连国库，红崽官桥逼宫宅；
 宁掷万金沐夷翟，独留糟糠施奴才；
