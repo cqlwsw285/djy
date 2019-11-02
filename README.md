@@ -1,5 +1,5 @@
 <a name="1" target="_blank"></a>
-<img src="https://raw.githubusercontent.com/lpbpi2994/www/master/t/fq4.jpg"><br>
+<img src="https://gitlab.com/szzdlab/www/raw/master/t/fq4.jpg"><br>
 ----
 
 <h2>海外最大的中文时报 《大纪元》 新闻同步</h2>
@@ -15,7 +15,7 @@
 
 
 #### 本项目短网址： https://git.io/dajiyuan
-<img src="https://raw.githubusercontent.com/lpbpi2994/djy/master/gb/300/djy.jpg" />  
+<img src="https://gitlab.com/szzdlab/djy/raw/master/gb/300/djy.jpg" />  
 
 #### 看《大纪元》更多新闻请下载 [一键翻墙软件](https://github.com/lpbpi2994/www/blob/master/README.md?fldf#1)
 ----
