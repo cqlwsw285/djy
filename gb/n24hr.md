@@ -611,6 +611,7 @@ BPA又称双酚A，是一种工业化学品，广泛被用于制造一些特定�
 在市议会以4-0投票通过的情况下，居住在东南卡彭特路（Southeast Carpenter Road）1.87英亩土地附近的十几个居民举起了反对购买的标志。
 
 市议员阿曼达.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月31日 2:43 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/lpbpi2994/djy/blob/master/gb/19/10/31/n11625211.md#1" target="_blank">台湾古典诗：台湾愿景</a><br></h3> 慎选英才共此心，中兴巨业寄怀深；冲开困境民生裕，再造奇迹愿景临。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月02日 10:40 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/lpbpi2994/djy/blob/master/gb/19/10/29/n11619071.md#1" target="_blank">【翻墙必看】中共内部权斗不断加剧和激化</a><br></h3>大纪元每天为读者梳理翻墙必看的文章：
 
 1 . 夏小强：中共四中全会后的政局走向
@@ -825,7 +826,6 @@ The Propublica analysis援引穆迪分析公司（Moody's Analytics）的数据�
 
 据CBC报导，卑诗.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月01日 12:36 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/lpbpi2994/djy/blob/master/gb/19/10/30/n11622680.md#1" target="_blank">唐浩：香江铭青史</a><br></h3>香江豪墨挥史诗   字句悲壮血泪织   善化天地正气漫   千古传奇苍宇驰......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月01日 12:11 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/lpbpi2994/djy/blob/master/gb/19/10/31/n11625211.md#1" target="_blank">台湾古典诗：台湾愿景</a><br></h3> 慎选英才共此心，中兴巨业寄怀深；冲开困境民生裕，再造奇迹愿景临。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月01日 12:10 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/lpbpi2994/djy/blob/master/gb/19/10/31/n11625145.md#1" target="_blank">王赫：呓语连篇的中共新版“道德纲要”</a><br></h3>中共28日开四中全会，27日为此搞了两个动作，一个是习近平《论坚持党对一切工作的领导》一书全国发行，另一个是发布《新时代公民道德建设实施纲要》（下文简称《纲要》），前者已写专文，本文专评后者。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月31日 10:55 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/lpbpi2994/djy/blob/master/gb/19/10/31/n11625005.md#1" target="_blank">NEWS 15周年演唱会DVD 发行首周公信榜摘冠</a><br></h3>由小山庆一郎、加藤成亮、增田贵久、手越祐也四人组成的日本杰尼斯团体NEWS推出15周年纪念影音作品《NEWS 15周年纪念演唱会 2018 “Strawberry”》，发行首周分别以3.9万张及4.9万张的销售佳绩夺得日本ORICON公信榜DVD周榜、蓝光周榜冠军。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月31日 10:32 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/lpbpi2994/djy/blob/master/gb/19/10/31/n11624983.md#1" target="_blank">陆委会：提防中共经济下行 将内部压力以台湾为出口</a><br></h3>陆委会31日发布第15次咨委员会议重点节录，针对“中国大陆经济下行对台湾可能产生之政治经济风险”，学者提到，陆方或将内部压力以台湾为出口，中国大陆经济下行将对我国形成经济及政治风险，政府应密切关注，适时因应。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月31日 10:31 PM			</td></tr>
