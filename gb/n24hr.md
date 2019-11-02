@@ -611,7 +611,6 @@ BPA又称双酚A，是一种工业化学品，广泛被用于制造一些特定�
 在市议会以4-0投票通过的情况下，居住在东南卡彭特路（Southeast Carpenter Road）1.87英亩土地附近的十几个居民举起了反对购买的标志。
 
 市议员阿曼达.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月31日 2:43 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/lpbpi2994/djy/blob/master/gb/19/10/31/n11624195.md#1" target="_blank">曾之乔演活星二代 反思人生学会“换位”思考</a><br></h3><a href="https://github.com/lpbpi2994/djy/blob/master/gb/19/10/31/n11624195.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/1910310201511487-150x120.jpg" align ="left"></a>由王小棣监制的台剧《你那边怎样?我这边ok》在台湾热播，开创台剧跨国合作。蓝心湄在剧中饰演过气女歌星，与曾之乔在剧中宛如亲姊妹般的关系，最新剧情是蓝心湄因脑部有恶性肿瘤，打电话给待在海外的曾之乔想让她返台。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月31日 2:25 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/lpbpi2994/djy/blob/master/gb/19/10/29/n11619071.md#1" target="_blank">【翻墙必看】中共内部权斗不断加剧和激化</a><br></h3>大纪元每天为读者梳理翻墙必看的文章：
 
 1 . 夏小强：中共四中全会后的政局走向
