@@ -691,9 +691,6 @@ CEO马斯克（Elon .........<br><img align="bottom" src="http://www.epochtimes.
 
 目前最好的价格包括：苹果手表系列3（GPS + LTE，38mm）、Xbox One S游戏机、第六代iPad，以.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月31日 4:10 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/lpbpi2994/djy/blob/master/gb/19/10/30/n11623172.md#1" target="_blank">加州大火肆虐 “里根总统图书馆”遭威胁</a><br></h3><a href="https://github.com/lpbpi2994/djy/blob/master/gb/19/10/30/n11623172.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/GettyImages-1179042891-150x120.jpg" align ="left"></a>周三（10月30日）早上，一场大火从罗纳德·里根总统图书馆（Ronald Reagan Presidential Library）附近的西米谷（Simi Valley）燃起，导致该地区被强制撤离。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月31日 4:07 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/lpbpi2994/djy/blob/master/gb/19/10/30/n11621063.md#1" target="_blank">美中对抗 学者：美国将强调坚守普世价值</a><br></h3><a href="https://github.com/lpbpi2994/djy/blob/master/gb/19/10/30/n11621063.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/GettyImages-1177955488-1-150x120.jpg" align ="left"></a>美国副总统彭斯（Mike Pence）于10月26日发表上任以来第二次对华演讲，受到各方关注。彭斯的演讲被视为是“讨共檄文”，跟去年演讲比较，彭斯今年更多地强调了美国核心价值，以及对拥有相似普世价值观的人们的支持，并谈及港台、人权等敏感话题。
-
-学者分析，彭斯此次演讲预示着将来美中对抗的重点已从过去经济竞争，转变为.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年10月31日 4:03 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/lpbpi2994/djy/blob/master/gb/19/10/29/n11619071.md#1" target="_blank">【翻墙必看】中共内部权斗不断加剧和激化</a><br></h3>大纪元每天为读者梳理翻墙必看的文章：
 
 1 . 夏小强：中共四中全会后的政局走向
