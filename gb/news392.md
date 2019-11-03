@@ -28,9 +28,13 @@
 <tr><td><h3><a href="https://github.com/lpbpi2994/djy/blob/master/gb/19/10/31/n11625851.md#1" target="_blank">戈壁东：香港警官威胁：若独立调查就“陀枪游行”</a><br></h3><a href="https://github.com/lpbpi2994/djy/blob/master/gb/19/10/31/n11625851.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/11/1910010514581538-600x450-150x120.jpg" align ="left"></a>近日，香港警察的“二哥”邓炳强公开宣称，如果成立独立调查委员会，香港三万警察就“陀枪游行”。邓炳强其实在说：如果你们敢成立独立调查委员会，我们香港警察就暴动。谁敢相信，这是一个正常警察高级官员说的话？
 
 邓炳强说这话有三个背景：香港镇压民众最凶狠毒辣的刘业成，被中共悄悄调走；祸港的最重要的幕后祸首、港澳办的张晓明和.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月01日 7:15 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/lpbpi2994/djy/blob/master/gb/19/10/31/n11625812.md#1" target="_blank">戈壁东：香港抗议民众为何成为勇武派？</a><br></h3><a href="https://github.com/lpbpi2994/djy/blob/master/gb/19/10/31/n11625812.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/11/1909071103202188-600x399-150x120.jpg" align ="left"></a>最近，美国的一些著名人士在支持香港民众抗议活动的同时，不断提示不要暴力。他们是对的，这是一种善意的提示。但是我们必须了解的是，香港即使有勇武派的狮行动，但是并不代表香港抗议民众使用了暴力。实际上所有的一切只是一些抗暴行动。
-
-香港民众从6月9日开始的抗议行动，是依法申请了警务部们的《不反对通知书》的，在这以后的大量.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月01日 6:33 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/lpbpi2994/djy/blob/master/gb/19/11/3/n11630084.md#1" target="_blank">云鹤天：一七令·中共房地产</a><br></h3>房，
+天价，飞扬。
+没章法，更无良。
+飙升一路，一路疯狂。
+官商勾一起，结伴耍流氓。
+高调鼓吹调控，扭头坐地分赃。
+民脂民膏全榨尽，逆天叛道害爹娘。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月03日 2:54 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/lpbpi2994/djy/blob/master/gb/19/11/3/n11630059.md#1" target="_blank">容干：我是愧对盛世的诗人</a><br></h3>我觉得自己是一个贪婪的人
 每天妻子要花很多钱去买肉和菜
 每天妻子都抱怨不断疯长的物价
