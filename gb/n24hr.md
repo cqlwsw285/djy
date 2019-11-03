@@ -454,6 +454,9 @@ Seiw Kong过去5年担任第28学区副学监，她.........<br><img align="bott
 
 
 孙盛希为新生代的一群发声，她表示开车去旅游对自己来说，正好呼应了她热.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月01日 10:08 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/lpbpi2994/djy/blob/master/gb/19/11/4/n11630954.md#1" target="_blank">持侨胞卡 “牡蛎翻译”服务85折优惠</a><br></h3>多伦多地区最近新增1家侨胞卡特约商店“牡蛎翻译”（Voiceoyster Interpretation &amp; Translation，250 Yonge Street, Suite 2201, Toronto），提供持卡侨胞85折笔译及口译服务优惠。该公司亦有口译培训服务。
+
+侨胞卡发行至今，全球已有逾3,1.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月04日 5:44 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/lpbpi2994/djy/blob/master/gb/19/11/4/n11631004.md#1" target="_blank">安省华人协会化妆歌舞晚会热闹开心</a><br></h3>安省华人协会10月25日晚上于万锦市举办化妆歌舞晚会，是次有乐队演奏现场音乐、并有嘉宾献唱，出席人数约几佰人。
 
 当晚筹委胡冾（Allan Wu）、Ron 郭及主席欧振宇律师及义工等，本着助己助人之心规划及实践一个完美的盛会，门票早已销售，节目统筹编排都能无缝折合。
