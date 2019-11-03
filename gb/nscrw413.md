@@ -36,7 +36,7 @@
 11月2日，香港岛有两场主要集会，一个是爱丁堡广场的“美国人权法案集气大会”，一个是遮打花园的“和理折纸鹤”活动，这两项活动都获得了警方发的不反对通知书。
 
 2.杨宁：传刘云山李长春等家人被抓透何信号？
-11月1日，据.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月03日 5:25 PM			</td></tr>
+11月1日，据.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月03日 6:10 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/lpbpi2994/djy/blob/master/gb/19/11/3/n11629888.md#1" target="_blank">湖北女子辅导儿子功课 气出心梗险丧命</a><br></h3>11月1日，湖北襄阳36岁的王女士辅导儿子写作业时气得诱发心梗，险些丧命。当天晚上，王女士为自己的儿子讲解数学题，反复讲解多次后，儿子仍不会，过程中，王女士突感心脏不适。她表示，近一年来，她为儿子的学习生了不少气，没想到这次竟如此严重。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月03日 12:50 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/lpbpi2994/djy/blob/master/gb/19/11/3/n11629919.md#1" target="_blank">河南1岁男婴被狗咬掉半边脸</a><br></h3>9月28日，河南周口商水胡吉镇，13个月大的硕硕跟着奶奶到邻居家串门，邻居的一条大狗突然冲出来扑到硕硕脸上，将他拖出半米远，咬的他浑身是血。狗主人称，他的狗从没咬过人，因此没拴狗绳，是硕硕拿东西打了它。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月03日 1:25 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/lpbpi2994/djy/blob/master/gb/19/11/3/n11629980.md#1" target="_blank">市委副书记任学锋罕见缺席重庆高层会议</a><br></h3>中共四中全会结束后，大陆各地按中共惯例开会“传达贯彻会议精神”。重庆高层召开的会议中，市委副书记任学锋罕见缺席引关注。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月03日 2:37 PM			</td></tr>
