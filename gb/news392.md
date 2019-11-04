@@ -20,7 +20,18 @@
 <tr><td><h3><a href="https://github.com/cqlwsw285/djy/blob/master/gb/19/11/1/n11627855.md#1" target="_blank">夏小强：中共四中全会后的政局走向</a><br></h3><a href="https://github.com/cqlwsw285/djy/blob/master/gb/19/11/1/n11627855.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/11/GettyImages-1178637558-150x120.jpg" align ="left"></a>不管中共内部的权力斗争怎样激烈，其实也是中共危机全面爆发走向最终解体过程中的表现。随着中共在经济、政治等多方面受到的压力增大，表现在中共内部，将是内斗不断加剧和激化。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月02日 2:53 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/cqlwsw285/djy/blob/master/gb/19/11/1/n11627663.md#1" target="_blank">王友群：习近平在善恶间面临最后选择</a><br></h3><a href="https://github.com/cqlwsw285/djy/blob/master/gb/19/11/1/n11627663.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/11/GettyImages-1177990642-600x400-150x120.jpg" align ="left"></a>最近，国际国内热点问题非常多。我却聚焦在一个问题——法轮功问题上。为什么？因为法轮功被迫害问题是当今中国一切问题的核心。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月02日 2:33 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/cqlwsw285/djy/blob/master/gb/19/11/1/n11627189.md#1" target="_blank">陈思敏：锲而不舍揭露中共 法轮功值得感谢</a><br></h3><a href="https://github.com/cqlwsw285/djy/blob/master/gb/19/11/1/n11627189.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/07/1907210408121528-150x120.jpg" align ="left"></a>香港前立法会议员梁国雄今年7月在法轮功反迫害20周年集会上表示：“我觉得很唏嘘，20年前很少人支持法轮功，或者同情法轮功，现在香港人在‘送中条例’的时候看到了中共的本质，越来越多人对于反对中共的专制，觉得应该支持并且自己参与。我觉得法轮功在这个过程里用他们活生生的经验告诉其他人。”......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月01日 8:37 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/cqlwsw285/djy/blob/master/gb/19/11/1/n11627039.md#1" target="_blank">李南央：“李南央状告海关案”跟进报导（63）</a><br></h3><a href="https://github.com/cqlwsw285/djy/blob/master/gb/19/11/1/n11627039.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/07/tu1-11-43-150x120.jpg" align ="left"></a>10月20日国内的一位朋友转来在微信中传出的“关于立即制止拆除香堂文化新村，迅速采取措施安定人心的紧急报告”。这份“紧急”对我别有一番滋味。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月01日 7:57 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/cqlwsw285/djy/blob/master/gb/19/11/4/n11631440.md#1" target="_blank">祝君安：香江秋月夜</a><br></h3>香江危局牵四海，
+海中月娥哀府娥，
+鲛泪成珠绕港流，
+夜夜哭泣为红祸。
+月照港府叹傀儡，
+娥迷妖共掀劫波，
+央港一气无善心，
+昧昧府中牝鸡鸣。
+月中蟾蜍暗送波，
+府中月娥共婆娑。
+届届港首媚红魔，
+出卖港人助纣恶。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月04日 11:02 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/cqlwsw285/djy/blob/master/gb/19/11/4/n11631409.md#1" target="_blank">正元：中共匪帮非我中华之邦</a><br></h3>中国——世界中央之国，神州－神的故里，中华大地——人类文明的摇篮！......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月04日 10:43 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/cqlwsw285/djy/blob/master/gb/19/11/4/n11631290.md#1" target="_blank">金浴凤：中南海的蟾嬖链</a><br></h3>
 
