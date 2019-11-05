@@ -23,6 +23,7 @@
 <tr><td><h3><a href="https://github.com/cqlwsw285/djy/blob/master/gb/19/11/2/n11629324.md#1" target="_blank">颜丹：说说中共设立的教师资格考试</a><br></h3><a href="https://github.com/cqlwsw285/djy/blob/master/gb/19/11/2/n11629324.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/11/33-01-600x400-150x120.jpg" align ="left"></a>在中国当老师，不按中共的标准还好；要按照中共的套路来教书，就只能毁人不倦、贻害中国的未来了。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月03日 3:20 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/cqlwsw285/djy/blob/master/gb/19/11/2/n11629244.md#1" target="_blank">美国需应对中俄危险的核武战略</a><br></h3><a href="https://github.com/cqlwsw285/djy/blob/master/gb/19/11/2/n11629244.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/11/GettyImages-1953625-150x120.jpg" align ="left"></a>俄罗斯和中共采取了一种新战略，即以有限的核武威胁，来对抗美国，甚至是针对美国本土。中俄都声称这么做，是为了因应常规性冲突，并维护区域安全，如俄罗斯将核武对准东欧，中共则是将矛头指向台湾。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月03日 3:07 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/cqlwsw285/djy/blob/master/gb/19/11/2/n11628597.md#1" target="_blank">程晓容：蓬佩奥点明中国方向 中共荒唐反驳</a><br></h3><a href="https://github.com/cqlwsw285/djy/blob/master/gb/19/11/2/n11628597.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/11/GettyImages-1179226441-1-150x120.jpg" align ="left"></a>从中共官媒发布的四中全会图片看到，与会党员们齐刷刷地高举右手，无异议地拥护党的决定。正是这种70年不变的、党性压抑人性的僵化表演及其背后的邪恶“坚持”，导致了空前的、巨大的民族灾难。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月02日 3:52 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/cqlwsw285/djy/blob/master/gb/19/11/5/n11634115.md#1" target="_blank">史蒂文：中共四中全会召开 意识形态防火墙升级</a><br></h3>贸易战还在继续，猪肉价格急剧上涨，香港反政府示威游行不断升级，经济增速放缓。所有来自国内外的压力都集中于中国领导人习近平身上，本周在沉重的压力下，中共召开了推迟近一年的四中全会。在外界看来四中全会是观望中国政治走向最集中的一次会议，因为在此之前，中共召开这类会议之后，中国政局发生了一些变化。有北京的观察人士认为，今年的.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月05日 1:01 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/cqlwsw285/djy/blob/master/gb/19/11/4/n11631469.md#1" target="_blank">林泉：猪猡运</a><br></h3>没有金刚钻，楞接瓷器活。
 天天要封号，日日被鞭责。
 脸比城墙厚，运如冥纸薄。
@@ -77,15 +78,5 @@
 陀枪游行抗，扬言不服从。
 你当你是谁，天网随便碰。
 再说共产党，容你撒酒疯？......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月03日 2:01 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/cqlwsw285/djy/blob/master/gb/19/11/2/n11628610.md#1" target="_blank">吐为快：妖共末日盗德纲要</a><br></h3>香港贸战扛不住，重拾道德遮羞布
-天灭中共妖惶恐，躲到传统避追踪
-党治渗透法律中，凭借伪法保独统
-颂党引导文艺风，还魂僵尸假大空
-专制钳劫局域网，强迫自律向党忠
-爱国偷换成爱党，要想富强先鞠躬
-党作民主称民主，自由全凭党摆布
-党霸资源说平等，任何挑战成亵尊
-一党独裁吹和谐，草民参政是非分
-党领一切即道德.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月02日 3:19 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/cqlwsw285/djy/blob/master/gb/news392.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/cqlwsw285/djy/blob/master/gb/news392_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/cqlwsw285/djy/blob/master/gb/news392_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/cqlwsw285/djy/blob/master/gb/news392_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/cqlwsw285/djy/blob/master/gb/news392_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/cqlwsw285/djy/blob/master/gb/news392_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/cqlwsw285/djy/blob/master/gb/news392_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/cqlwsw285/djy/blob/master/gb/news392_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/cqlwsw285/djy/blob/master/gb/news392_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/cqlwsw285/djy/blob/master/gb/news392_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/cqlwsw285/djy/blob/master/gb/news392_2.md#1">下一页</a></h3></td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/cqlwsw285/djy/blob/master/gb/news392.md#1<br><a href="https://github.com/cqlwsw285/djy/blob/master/gb/news392.md#1"><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/cqlwsw285/djy/blob/master/gb/news392.md%231" title="分享本文章"></a><br>原文地址： <a href="http://www.epochtimes.com/gb/news392.htm">http://www.epochtimes.com/gb/news392.htm</a>    （国内需<a href="https://git.io/JesJV">下载翻墙软件</a>才能访问）</p>
