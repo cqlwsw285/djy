@@ -22,6 +22,14 @@
 <tr><td><h3><a href="https://github.com/cqlwsw285/djy/blob/master/gb/19/11/3/n11630176.md#1" target="_blank">程晓容：四中全会推中国之治还是中共之治？</a><br></h3><a href="https://github.com/cqlwsw285/djy/blob/master/gb/19/11/3/n11630176.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/11/1911020637082478-1-150x120.jpg" align ="left"></a>中共的建政史已经表明，坚持党的领导意味着侵害人权、破坏传统、毁灭环境。因此，在这个最根本的“坚持”前提下，中国不可能实现“依法治国”，人民不可能当家作主，公平、权益、法治都是空。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月03日 5:15 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/cqlwsw285/djy/blob/master/gb/19/11/3/n11630035.md#1" target="_blank">项云：中共流氓手段对香港人民失灵</a><br></h3><a href="https://github.com/cqlwsw285/djy/blob/master/gb/19/11/3/n11630035.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/11/1911020457272188-150x120.jpg" align ="left"></a>中共从起家开始，一贯通过耍流氓欺骗了中国人民，篡权后又一以贯之的用流氓手段欺骗中国人民和欺骗世界。但中共最能骗人迷惑人的流氓手段就是“表面承诺暗中改变”，毫无诚信可言，也因此中共统治下的社会不可能有真正的法治，否则中共就无法耍流氓。而且“表面承诺暗中改变”这种流氓手段，在某种条件下会让人猝不及防，不好应对。但是在香港中.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月03日 2:37 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/cqlwsw285/djy/blob/master/gb/19/11/3/n11630013.md#1" target="_blank">王友群：加速中共垮台的四中全会</a><br></h3><a href="https://github.com/cqlwsw285/djy/blob/master/gb/19/11/3/n11630013.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2013/07/1201280706361944-150x120.jpg" align ="left"></a>10月24日，美国副总统彭斯就中美关系发表第二次重要演讲时，再次引用中国古语：“人见目前，天见久远”。这八个中国字，内涵非常深刻，用来认识中共四中全会，很有帮助。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月03日 2:20 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/cqlwsw285/djy/blob/master/gb/19/11/5/n11634657.md#1" target="_blank">李春草：社会主义民主特色</a><br></h3>寒蝉不许叫，处处党发飙；
+公私一合营，韭菜割多少。
+
+盛会掌声大，疑是惊雷炸；
+全票赞修宪，主席任期抹。
+
+禁网覆红邦，率土皆姓党；
+不见谏鼓敲，但闻马屁响。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月05日 7:20 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/cqlwsw285/djy/blob/master/gb/19/11/5/n11634115.md#1" target="_blank">史蒂文：中共四中全会召开 意识形态防火墙升级</a><br></h3>贸易战还在继续，猪肉价格急剧上涨，香港反政府示威游行不断升级，经济增速放缓。所有来自国内外的压力都集中于中国领导人习近平身上，本周在沉重的压力下，中共召开了推迟近一年的四中全会。在外界看来四中全会是观望中国政治走向最集中的一次会议，因为在此之前，中共召开这类会议之后，中国政局发生了一些变化。有北京的观察人士认为，今年的.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月05日 1:01 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/cqlwsw285/djy/blob/master/gb/19/11/4/n11631469.md#1" target="_blank">林泉：猪猡运</a><br></h3>没有金刚钻，楞接瓷器活。
 天天要封号，日日被鞭责。
@@ -66,16 +74,5 @@
 物价再疯狂，我的胃口却无法拒绝肉和菜的贿赂
 我实在是一个贪婪的人啊
 物价这么高，却不体谅盛世的难处......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月03日 2:45 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/cqlwsw285/djy/blob/master/gb/19/11/3/n11629999.md#1" target="_blank">郑纯清：港警“陀枪游行”能抗住报应吗？</a><br></h3>月娥传被扔，已被悬半空。
-党妈一松手，不定砸何坑。
-光头港恶警，碎儿留学梦。
-元朗何博士，虚名归零洞。
-恶报有早晚，现多现世惩。
-这才哪到哪，欠必全还清。
-报应亦警告，诸恶莫乱行。
-针对独立查，匪警脚急蹦。
-陀枪游行抗，扬言不服从。
-你当你是谁，天网随便碰。
-再说共产党，容你撒酒疯？......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月03日 2:01 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/cqlwsw285/djy/blob/master/gb/news392.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/cqlwsw285/djy/blob/master/gb/news392_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/cqlwsw285/djy/blob/master/gb/news392_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/cqlwsw285/djy/blob/master/gb/news392_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/cqlwsw285/djy/blob/master/gb/news392_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/cqlwsw285/djy/blob/master/gb/news392_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/cqlwsw285/djy/blob/master/gb/news392_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/cqlwsw285/djy/blob/master/gb/news392_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/cqlwsw285/djy/blob/master/gb/news392_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/cqlwsw285/djy/blob/master/gb/news392_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/cqlwsw285/djy/blob/master/gb/news392_2.md#1">下一页</a></h3></td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/cqlwsw285/djy/blob/master/gb/news392.md#1<br><a href="https://github.com/cqlwsw285/djy/blob/master/gb/news392.md#1"><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/cqlwsw285/djy/blob/master/gb/news392.md%231" title="分享本文章"></a><br>原文地址： <a href="http://www.epochtimes.com/gb/news392.htm">http://www.epochtimes.com/gb/news392.htm</a>    （国内需<a href="https://git.io/JesJV">下载翻墙软件</a>才能访问）</p>
