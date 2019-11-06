@@ -26,6 +26,7 @@
 <tr><td><h3><a href="https://github.com/cqlwsw285/djy/blob/master/gb/19/11/4/n11633145.md#1" target="_blank">蔡晓鹏：最难风雨故人来</a><br></h3><a href="https://github.com/cqlwsw285/djy/blob/master/gb/19/11/4/n11633145.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/11/http-____mmbiz.qpic_.cn__mmbiz_jpg__8bBQmZ0vldqxAwzLgqXMjeyaySGj9P5RYZFpSZDzPYibbsJzWW1L4BBGaEzL6he0JvXHN1yWJuE96f48krqFtnQ__0wx_fmtjpeg-150x120.jpg" align ="left"></a>蔡晓鹏，1978年考入中国人民大学法律系，1982年分配到商业部，后任职中央农研室、农业部，杜润生门下弟子，89后受迫害。现为北京新四军研究会研究员，北京金百瑞集团董事长。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月05日 2:41 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/cqlwsw285/djy/blob/master/gb/19/11/4/n11632415.md#1" target="_blank">陈思敏：中国股市的第一祸害</a><br></h3><a href="https://github.com/cqlwsw285/djy/blob/master/gb/19/11/4/n11632415.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2018/10/gushi-150x120.jpg" align ="left"></a>公开数据显示，中共证监会IPO“大跃进”今年卷土重来，如此IPO的危害有一个最新的例子。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月04日 6:40 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/cqlwsw285/djy/blob/master/gb/19/11/4/n11631494.md#1" target="_blank">专访金里奇：美国曾误判中共这个最大威胁</a><br></h3><a href="https://github.com/cqlwsw285/djy/blob/master/gb/19/11/4/n11631494.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2014/08/1408131006221012-150x120.jpg" align ="left"></a>英文《大纪元时报》资深记者扬?耶凯利克（Jan Jekielek）在2019年10月份采访了美国重量级政治人物、共和党人、曾在1995年至1999年间担任美国国会众议院议长的纽特·金里奇（Newt Gingrich）。全文翻译如下：......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月04日 3:44 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/cqlwsw285/djy/blob/master/gb/19/11/6/n11637723.md#1" target="_blank">王赫：四中全会侥幸过关 习近平陷更深危机</a><br></h3>会议巜公报》和巜决定》四平八稳，显得四中全会风平浪静，会议前最高层人事变动的各种放风、传闻都是“谎言”，习近平仍牢牢掌控局势。但，会议期间重庆第三号人物任学锋的离奇死亡； “会议组织工作”的格外严格，近400名与会中共权贵遭变相软禁，以及刘云山、李长春、刘奇葆的家人被抓传言等等，都使这个推迟了一年多的全会漏出一丝血腥.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月07日 12:38 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/cqlwsw285/djy/blob/master/gb/19/11/6/n11636435.md#1" target="_blank">史蒂文：中美舆论战持续 四中全会后的新变化</a><br></h3>中共四中全会今天按计划闭幕，不过这场为期四天的会议让外界猜测到中国政局可能会出现一个新的变化。本周，来自中国各地的党政官员齐聚北京讨论中共的未来方向。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月06日 1:07 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/cqlwsw285/djy/blob/master/gb/19/11/5/n11635904.md#1" target="_blank">海网：香港暴恐升级意味着什么？</a><br></h3>
 
@@ -52,17 +53,5 @@
 天天要封号，日日被鞭责。
 脸比城墙厚，运如冥纸薄。
 春宵玉帝梦，新岁祭猪猡。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月04日 11:14 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/cqlwsw285/djy/blob/master/gb/19/11/4/n11631440.md#1" target="_blank">祝君安：香江秋月夜</a><br></h3>香江危局牵四海，
-海中月娥哀府娥，
-鲛泪成珠绕港流，
-夜夜哭泣为红祸。
-月照港府叹傀儡，
-娥迷妖共掀劫波，
-央港一气无善心，
-昧昧府中牝鸡鸣。
-月中蟾蜍暗送波，
-府中月娥共婆娑。
-届届港首媚红魔，
-出卖港人助纣恶。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月04日 11:02 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/cqlwsw285/djy/blob/master/gb/news392.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/cqlwsw285/djy/blob/master/gb/news392_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/cqlwsw285/djy/blob/master/gb/news392_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/cqlwsw285/djy/blob/master/gb/news392_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/cqlwsw285/djy/blob/master/gb/news392_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/cqlwsw285/djy/blob/master/gb/news392_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/cqlwsw285/djy/blob/master/gb/news392_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/cqlwsw285/djy/blob/master/gb/news392_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/cqlwsw285/djy/blob/master/gb/news392_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/cqlwsw285/djy/blob/master/gb/news392_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/cqlwsw285/djy/blob/master/gb/news392_2.md#1">下一页</a></h3></td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/cqlwsw285/djy/blob/master/gb/news392.md#1<br><a href="https://github.com/cqlwsw285/djy/blob/master/gb/news392.md#1"><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/cqlwsw285/djy/blob/master/gb/news392.md%231" title="分享本文章"></a><br>原文地址： <a href="http://www.epochtimes.com/gb/news392.htm">http://www.epochtimes.com/gb/news392.htm</a>    （国内需<a href="https://git.io/JesJV">下载翻墙软件</a>才能访问）</p>
