@@ -36,5 +36,5 @@
 自从两年前中共一刀切北方强推“媒改气”政策后，天然气价格就不断上涨，最近短短一个月更暴涨了近五成，还一度出现单日每吨上涨近千元人民币，令百姓怨声载道。
 
 2.林郑被习韩摆上台 香港步入黑暗时期
-反送中运动至今逾5个月，警察暴力.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月07日 8:45 PM			</td></tr>
+反送中运动至今逾5个月，警察暴力.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月07日 9:28 PM			</td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/mprjd2205/djy/blob/master/gb/nscrw413.md#1<br><a href="https://github.com/mprjd2205/djy/blob/master/gb/nscrw413.md#1"><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/mprjd2205/djy/blob/master/gb/nscrw413.md%231" title="分享本文章"></a><br>原文地址： <a href="http://www.epochtimes.com/gb/nscrw413.htm">http://www.epochtimes.com/gb/nscrw413.htm</a>    （国内需<a href="https://git.io/JesJV">下载翻墙软件</a>才能访问）</p>
