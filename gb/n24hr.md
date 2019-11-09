@@ -604,14 +604,18 @@ A组，巴黎圣日耳曼在主场1：0小胜比利.........<br><img align="bott
 <tr><td><h3><a href="https://github.com/mprjd2205/djy/blob/master/gb/19/11/6/n11638135.md#1" target="_blank">川普11日将出席纽约第100届老兵节游行</a><br></h3><a href="https://github.com/mprjd2205/djy/blob/master/gb/19/11/6/n11638135.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/11/Trump-1-150x120.jpg" align ="left"></a>11月6日白宫宣布，川普总统将于11月11日老兵节当天参加纽约市第100届退伍军人节游行，他将成为首位为纽约市退伍军人节游行开幕式揭幕的美国总统。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月07日 5:29 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/mprjd2205/djy/blob/master/gb/19/11/6/n11636423.md#1" target="_blank">维州利用VR技术教儿童和移民水中求生</a><br></h3><a href="https://github.com/mprjd2205/djy/blob/master/gb/19/11/6/n11636423.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/11/GettyImages-874924816-150x120.jpg" align ="left"></a>维州研发出的一个水中安全课程利用虚拟技术，使孩子和新移民在不弄湿身体的情况下，学习在澳洲暗藏危险的海洋中游泳和求生。该课程由斯威本科技大学和维州救生协会（Life Saving Victoria）共同开发，旨在利用360度逼真的互动视频，将孩子们置于虚拟的离岸流中，教他们如何逃脱和求生，以减少溺水悲剧。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月07日 5:28 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/mprjd2205/djy/blob/master/gb/19/11/6/n11638214.md#1" target="_blank">美议员提法案 阻联邦退休基金投资中国股票</a><br></h3><a href="https://github.com/mprjd2205/djy/blob/master/gb/19/11/6/n11638214.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/06/190626154132100699-150x120.jpg" align ="left"></a>多位美国联邦议员周三（11月6日）提出法案，旨在阻止联邦退休基金投资中国股票。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月07日 5:15 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/mprjd2205/djy/blob/master/gb/19/11/9/n11643446.md#1" target="_blank">古常：任学锋诡异之死</a><br></h3>两会杀威仪仗兵，跳楼被死固权经。
+明持刀斧夺选票，暗示血腥迫精英。
+四要自信说反话，七不许讲表心声。
+全球指引高烧语，做梦占妻马上风。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月09日 1:01 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/mprjd2205/djy/blob/master/gb/19/11/9/n11643433.md#1" target="_blank">鼓励读者重返图书馆 ACT注销所有逾期罚款</a><br></h3>为鼓励读者重新开始借阅图书，首都行政区（ACT）图书馆在11月更新计算机系统时，将注销所有逾期罚款。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月09日 12:50 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/mprjd2205/djy/blob/master/gb/19/11/9/n11643225.md#1" target="_blank">【翻墙必看】川普还没有同意取消关税</a><br></h3>大纪元每天为读者梳理翻墙必看的文章：
 
 1 . 川普：我尚未同意取消关税 是中方想要
 美国总统川普（特朗普）周五（11月8日）上午表示，他还没有同意削减对华关税，尽管北京希望他这样做。
 
-2.?陆银行限提款 挤兑频现 专家：危机前夜
-中共央行在全国三个省市试点进行大额现金提款限制。中国大陆两地日前相继发生银.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月09日 12:10 PM			</td></tr>
+2.?习近平在美中关系和香港问题上遭“逼宫”
+中共内部矛盾不断。继江派心腹曾培炎在海外对美中关系公开喊话、沈大伟在香港就.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月09日 12:10 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/mprjd2205/djy/blob/master/gb/19/11/9/n11643329.md#1" target="_blank">每日三退声明精选（2019/11/08）</a><br></h3>我并非不理解那种功利的选择考虑，而是对共产党怀有一种强烈的抵触甚至恐惧。反右，大饥荒，文革，六四，我不能理解一个口口声声宣称代表最广大人民根本利益的党怎能视生命如草芥，频繁对人民亮出屠刀，亲手制造一处处人间地狱？党是上一代人命里的劫，是很多前辈终生的噩梦。但我希望乌云能就此散去，至少让我们救救孩子……最后，在此我宣布退.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月09日 10:10 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/mprjd2205/djy/blob/master/gb/19/11/9/n11643273.md#1" target="_blank">西米谷一家两人倒血泊 警方判是谋杀自杀</a><br></h3>当局周五（11月8日）宣布，西米谷市（Simi Valley）一幢住宅（500 block of Fairfield Road）前一晚发生的两死骇人命案是一桩谋杀-自杀案。当局在该住宅内发现一对男女及一只狗的尸体。
 
