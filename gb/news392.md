@@ -16,7 +16,16 @@
 <tr><td><h3><a href="https://github.com/mprjd2205/djy/blob/master/gb/19/11/7/n11640097.md#1" target="_blank">王友群：中共的高压和欺骗注定要失败</a><br></h3><a href="https://github.com/mprjd2205/djy/blob/master/gb/19/11/7/n11640097.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/11/2b48d418da4a78d195be651e481fbde9-600x400-150x120.jpg" align ="left"></a>我记得曾经看过一篇谈苏共亡党的文章，其中写道：腐烂的党，一直在掩盖腐烂的真相。不但自己掩盖，还逼迫外国人掩盖。法国作家纪德的《访苏归来》，讲了一点点苏共的丑闻，便受到苏共歇斯底里的批判。罗曼·罗兰的《莫斯科日记》，记了一点点苏共的阴暗面，被迫在他死后才得以出版。腐烂的肌体却被裹上一层层锦锻，撒满鲜花，表面上，华丽则华丽.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月08日 1:07 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/mprjd2205/djy/blob/master/gb/19/11/7/n11639145.md#1" target="_blank">程晓容：新华社报导德国东西差距 暗示什么</a><br></h3><a href="https://github.com/mprjd2205/djy/blob/master/gb/19/11/7/n11639145.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/11/GettyImages-1184643939-150x120.jpg" align ="left"></a>今日，德国东西部的多方面差距诠释着红色极权的遗祸，而中共却在高喊“坚持党的领导”。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月07日 7:24 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/mprjd2205/djy/blob/master/gb/19/11/6/n11638159.md#1" target="_blank">夏小强：任学锋意外死亡之谜</a><br></h3><a href="https://github.com/mprjd2205/djy/blob/master/gb/19/11/6/n11638159.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/11/VCG11466306465-1-600x400-2-150x120.jpg" align ="left"></a>在中共的体制下，在中共的官场中，没有一个人是安全的。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月07日 6:47 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/mprjd2205/djy/blob/master/gb/19/11/7/n11638744.md#1" target="_blank">谭笑飞：闲谈中共的接班人</a><br></h3><a href="https://github.com/mprjd2205/djy/blob/master/gb/19/11/7/n11638744.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/11/1507202143382039-150x120.jpg" align ="left"></a>中共的十九届四中全会在陈词滥调中黯然落幕，但是并不能掩盖危机四伏的败相。此前传言的陈敏尔和胡春华入常并没有实现，但是关于习近平接班人的问题再一次引起了广泛关注。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月07日 2:43 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/mprjd2205/djy/blob/master/gb/19/11/9/n11644081.md#1" target="_blank">振玉：诗词九首</a><br></h3>七律：史鉴——弃暗光明
+
+投明弃暗运沉船，
+人弃丹朱成必然。
+伊尹逐王愈显圣，
+霍光废帝更称贤。
+众离王莽焉为逆？
+民唾隋炀乃顺天。
+各国纷纷驱马列，
+神州退党谱新篇。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月09日 7:09 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/mprjd2205/djy/blob/master/gb/19/11/9/n11643508.md#1" target="_blank">云鹤天：不顾一切</a><br></h3>共产邪灵为了自己的统治
 不惜把香港变成一座空港死港
 共产邪灵为了自己的统治
