@@ -26,6 +26,7 @@
 <tr><td><h3><a href="https://github.com/gzhsl204/djy/blob/master/gb/19/11/10/n11645546.md#1" target="_blank">王友群：我揭露贺国强严重违纪违法的内幕</a><br></h3><a href="https://github.com/gzhsl204/djy/blob/master/gb/19/11/10/n11645546.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/wangyouqun-1-1-150x120.jpg" align ="left"></a>10月5日，我在大纪元发表《中共政法大骗局到了该收场的时候了》。其中，谈到了我在被中共非法监禁5年里向江泽民等索赔超过1亿元人民币，而中共的公、检、法、司，从下到上，直至江泽民，没有一位官员敢说一个“不”字的传奇。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月10日 10:48 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/gzhsl204/djy/blob/master/gb/19/11/10/n11645296.md#1" target="_blank">程晓容：中共“记者节”背后的真相</a><br></h3><a href="https://github.com/gzhsl204/djy/blob/master/gb/19/11/10/n11645296.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/11/GettyImages-1074820394-150x120.jpg" align ="left"></a>11月8日，是中共设定的记者节。次日，世界纪念柏林墙倒塌30周年、同时聚焦在中国境内耸立的红墙——封闭信息、言论和新闻自由的高墙。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月10日 5:30 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/gzhsl204/djy/blob/master/gb/19/11/10/n11645476.md#1" target="_blank">吴侃：从企业文化看阿里巴巴</a><br></h3><a href="https://github.com/gzhsl204/djy/blob/master/gb/19/11/10/n11645476.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/dfde09e2fcd09f38d1ac1e99d35d25bf-150x120.jpg" align ="left"></a>有人说阿里巴巴的淘宝都是假货，这是阿里巴巴的罪。这个说法是没有看到实质。在东方文化讲，名字带着信息，从名字能看出取这个名字的更深的含义。企业名字也有这个企业的信息，如：行为、准则、风格，西方管理称为企业文化。通过阿里巴巴的名字来看看，能透露出企业什么样的心理和一种什么文化。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月10日 5:26 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/gzhsl204/djy/blob/master/gb/19/11/6/n11637932.md#1" target="_blank">太阳花：家乡怎么了？</a><br></h3>我爱新疆，她是生养我的地方。好久没有很认真地去写一篇文章了，执笔的时候就显得尤为生疏，这只是一个开始，控诉的开始，我不会说一些“经典”的腐败案，达到让大家觉得以前信任的政府原来有这样险恶的目的。我只用发生在我自己的身上的最真实的事，让大家自己心里去评判。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月12日 8:09 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/gzhsl204/djy/blob/master/gb/19/11/11/n11649069.md#1" target="_blank">关乐：紧着脱套反紧链</a><br></h3>暗害明杀抓议员，一切刀切速决悍。
 暴力夺权暴擅权，蒙面暴警禁蒙面。
 暴压抗暴称止暴，平白祸乱喊平乱。
@@ -41,13 +42,5 @@
 森然恐怖，寂然惨淡
 权贵之倚靠兮
 百姓之梦魇......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月11日 8:14 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/gzhsl204/djy/blob/master/gb/19/11/10/n11645466.md#1" target="_blank">理悟：敬港胞抗共反送中</a><br></h3>香江源流长，
-港人祖炎黄。
-威武不可辱，
-一付铁脊梁。
-为争自由故，
-不怯红魔狂。
-矢志捍乡土，
-精魂着华章。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月10日 5:23 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/gzhsl204/djy/blob/master/gb/news392.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/gzhsl204/djy/blob/master/gb/news392_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/gzhsl204/djy/blob/master/gb/news392_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/gzhsl204/djy/blob/master/gb/news392_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/gzhsl204/djy/blob/master/gb/news392_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/gzhsl204/djy/blob/master/gb/news392_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/gzhsl204/djy/blob/master/gb/news392_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/gzhsl204/djy/blob/master/gb/news392_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/gzhsl204/djy/blob/master/gb/news392_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/gzhsl204/djy/blob/master/gb/news392_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/gzhsl204/djy/blob/master/gb/news392_2.md#1">下一页</a></h3></td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/gzhsl204/djy/blob/master/gb/news392.md#1<br><a href="https://github.com/gzhsl204/djy/blob/master/gb/news392.md#1"><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gzhsl204/djy/blob/master/gb/news392.md%231" title="分享本文章"></a><br>原文地址： <a href="http://www.epochtimes.com/gb/news392.htm">http://www.epochtimes.com/gb/news392.htm</a>    （国内需<a href="https://git.io/JesJV">下载翻墙软件</a>才能访问）</p>
