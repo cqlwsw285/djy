@@ -25,9 +25,21 @@
 <tr><td><h3><a href="https://github.com/fwwipt2046/djy/blob/master/gb/19/11/13/n11652281.md#1" target="_blank">程晓容：玻利维亚变天 给中共上了一课</a><br></h3><a href="https://github.com/fwwipt2046/djy/blob/master/gb/19/11/13/n11652281.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/11/GettyImages-1177972249-150x120.jpg" align ="left"></a>玻利维亚政局的变动，昭示人民的重大胜利、专制政权的失败。在柏林墙倒塌30周年之际，在香港抗争不衰之时，莫拉莱斯认输，给了中共当头一棒。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月13日 5:00 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/fwwipt2046/djy/blob/master/gb/19/11/13/n11652454.md#1" target="_blank">梁京：香港危机失控的政治逻辑及其后果</a><br></h3><a href="https://github.com/fwwipt2046/djy/blob/master/gb/19/11/13/n11652454.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/11/15d66ebaf153b01f_ttl7dayVxi_bg1-150x120.jpg" align ="left"></a>11月11日（周一）香港事态的严重恶化表明，香港危机已严重失控。香港危机失控最主要的标志其实并非市民抗争行动的不断升级，而是北京当局及其在香港的代理人越来越失去对警方行为和行动的控制，以至警察成为当前香港恢复基本秩序，走出政治困局最直接、同时也最难以逾越的障碍。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月13日 3:49 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/fwwipt2046/djy/blob/master/gb/19/11/13/n11651763.md#1" target="_blank">王友群：齐心协力推倒中共这堵墙</a><br></h3><a href="https://github.com/fwwipt2046/djy/blob/master/gb/19/11/13/n11651763.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/11/GettyImages-1181095710-600x400-2-150x120.jpg" align ="left"></a>1987年6月12日，美国总统里根在西柏林的勃兰登堡门前发表著名的“推倒这堵墙”的演说时，很多人都不相信。但是，2年后，柏林墙被推倒！......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月13日 3:12 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/fwwipt2046/djy/blob/master/gb/19/11/13/n11652305.md#1" target="_blank">骆克仁：大陆“双11”疯狂消费后的随想</a><br></h3><a href="https://github.com/fwwipt2046/djy/blob/master/gb/19/11/13/n11652305.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/11/GettyImages-1181819399-150x120.jpg" align ="left"></a>大陆“双11”随着中国人散居世界，逐渐成为全球化的消费狂欢，尽管美中贸易战没有结束的征兆，中国经济增速也降至30年来的谷底，但仍然出现一串让人咋舌的纪录。
+<tr><td><h3><a href="https://github.com/fwwipt2046/djy/blob/master/gb/19/11/15/n11659287.md#1" target="_blank">李春草：醉花阴?红魔的最后疯狂</a><br></h3>
 
-据陆媒报导，11月11日0时，阿里巴巴天猫“双11”全球狂欢节开幕，仅用了96秒成交额就超过了100亿元人民币，总成交额达到2684亿元（约383亿美元），让.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月13日 2:07 PM			</td></tr>
+为非作歹性难改
+香港蛊末灾
+穷奇又张口
+裹挟奴才
+蠢向地狱迈
+
+英雄勇武护珠彩
+九龙豪气概
+莫道无报应
+风扫败叶
+再将新宇开
+
+责任编辑：赵元......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月16日 6:45 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/fwwipt2046/djy/blob/master/gb/19/11/15/n11657679.md#1" target="_blank">项云：世界应深入了解《魔鬼在统治着我们的世界》</a><br></h3>所有共产极权都与本国人民对立，支持世界邪恶势力与世界人民对立；所有共产极权都把本国百姓生活变成监狱并企图称王称霸将世界也变成监狱。中共就更把共产极权邪恶发挥的淋漓尽致登峰造极，冒天下大不韪将邪恶进行到底。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月15日 2:54 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/fwwipt2046/djy/blob/master/gb/19/11/15/n11657663.md#1" target="_blank">金浴凤：2019 不是 1989</a><br></h3>八九蟾猫刻舟愚，一九习总求剑迂；
 柏林倒矣苏何在，红墙腐兮已生蛆；
