@@ -964,7 +964,4 @@ Cinemark的新影院建造在西尔斯汽车中心（Sears Auto Center）的旧�
 是自私自利的吸血鬼
 是鸡鸣狗盗的市井无赖
 是贪婪无理性的赌徒......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月14日 3:23 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/fwwipt2046/djy/blob/master/gb/19/11/14/n11655015.md#1" target="_blank">遭虐童指控的YouTube网红“mom” 在亚利桑那州去世</a><br></h3>曾在YouTube红极一时的“mom”，亚利桑那州（Arizona）的赫伯森（Machelle Hobson），因虐童案3月被捕。周二（11月12日）上午，她在该州的斯科茨代尔（Scottsdale）去世。
-
-赫伯森在YouTube上开设了一个“Fantastic Adventures”的频道，播放她收养的7个孩子.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月14日 2:49 PM			</td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/fwwipt2046/djy/blob/master/gb/n24hr.md#1<br><a href="https://github.com/fwwipt2046/djy/blob/master/gb/n24hr.md#1"><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fwwipt2046/djy/blob/master/gb/n24hr.md%231" title="分享本文章"></a><br>原文地址： <a href="http://www.epochtimes.com/gb/n24hr.htm">http://www.epochtimes.com/gb/n24hr.htm</a>    （国内需<a href="https://git.io/JesJV">下载翻墙软件</a>才能访问）</p>
