@@ -524,6 +524,7 @@ A-Lin透露，她从小渴望拿麦克风唱歌.........<br><img align="bottom" 
 <tr><td><h3><a href="https://github.com/fwwipt2046/djy/blob/master/gb/19/11/14/n11655742.md#1" target="_blank">星二代拼出道十年 Trash乐团：不想被当种子队</a><br></h3><a href="https://github.com/fwwipt2046/djy/blob/master/gb/19/11/14/n11655742.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/11/1911140854041470-ss1-150x120.jpg" align ="left"></a>Trash乐团出道十年，今天（14日）在台北举办新EP《Never Die》记者会，主唱阿夜是艺人安迪的儿子，他表示身为星二代，不想被外界当成种子队，“爸爸平常比较扑克脸，但可以感受到真心，觉得努力没有白费，被爸爸肯定比被谁肯定都好”。
 
 虽然容易被外界放大检视，但阿夜认为有好有坏，“好的点就是和爸爸做同一行，很有.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月14日 10:09 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/fwwipt2046/djy/blob/master/gb/19/11/16/n11660421.md#1" target="_blank">朱同：共产党没有能力领导中国</a><br></h3>最近，中共“战果辉煌”，在国内、成功遏制住了二师兄，把事实通胀宣传成了“应该担忧通缩”；十三个“坚持和完善”成功发布；又砸了好多佛像（包括道教的）；双十一又卖了几千亿假货；历史上首次消灭了“黑死病”；落实了“爱党教育”，号召人民“坚持爱党爱国爱社会主义相统一，祖国的命运与党的命运密不可分”，要求人民在爱祖国母亲之前必须.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月17日 5:50 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/fwwipt2046/djy/blob/master/gb/19/11/16/n11660419.md#1" target="_blank">金浴凤：香港</a><br></h3>流转金融港，干惹独裁狂；
 时有祸衅降，暗操傀儡戗；
 自由恨牙响，法治愁梦惶；
