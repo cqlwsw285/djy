@@ -1079,5 +1079,4 @@ FlixBus和MTR Western合作经营的巴士线路将西雅图与华州和俄勒�
 
 根据联邦法院的文件，79岁的包君圆（Jun Yuan Pao，音译）生于上海。她在40多年前移民加拿大，并在温哥华市中心拥有一套公寓。她同时持有香港护照，近些年主要住在香港。
 .........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月14日 3:44 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/fwwipt2046/djy/blob/master/gb/19/11/13/n11653743.md#1" target="_blank">夏林:《人民日报》的文章告诉了国人什么真相</a><br></h3>中共喉舌《人民日报》，在11月8日美国国务卿蓬佩奥发表对柏林墙倒塌30周年纪念讲话后，刊登了一篇署名“钟声”的文章，对蓬佩奥狠批了一番。文章一开头就到对蓬佩奥有三个不满：一个是“手里拎着一根意识形态大棒，恨不能走到哪里都耍一套污蔑、抹黑（中共）的把戏”；第二是“他一再肆意攻击中国政治制度，蓄意渲染所谓?‘中国威胁’”.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月14日 2:51 AM			</td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/fwwipt2046/djy/blob/master/gb/n24hr.md#1<br><a href="https://github.com/fwwipt2046/djy/blob/master/gb/n24hr.md#1"><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fwwipt2046/djy/blob/master/gb/n24hr.md%231" title="分享本文章"></a><br>原文地址： <a href="http://www.epochtimes.com/gb/n24hr.htm">http://www.epochtimes.com/gb/n24hr.htm</a>    （国内需<a href="https://git.io/JesJV">下载翻墙软件</a>才能访问）</p>
