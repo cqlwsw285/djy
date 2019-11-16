@@ -2,6 +2,9 @@
 <tr><td><h3><a href="https://github.com/fwwipt2046/djy/blob/master/gb/19/11/15/n11657824.md#1" target="_blank">【名家专栏】教育下一代感恩而不是自命不凡</a><br></h3><a href="https://github.com/fwwipt2046/djy/blob/master/gb/19/11/15/n11657824.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/11/20191115_shouhuihsu_antifa_29408951026_5617966a3c_k-01-320x200.jpg" align ="left"></a>生活中有很多值得我们感恩的因素。培养感恩的习惯，练习以感恩之心看待生活，对我们每个人乃至全社会的福祉都是至关重要的。既然如此，为什么我们要教育下一代去做与之相反的事情——自命不凡、抱怨、憎恨和将自己视为受害者呢？
 感恩的理由
 我们感恩现在所拥有的生活，感恩人生所拥有的，而不是没有的。只要我们停下脚步反思，便会对我们.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月15日 5:16 PM	</td></tr>
+<tr><td><h3><a href="https://github.com/fwwipt2046/djy/blob/master/gb/19/11/15/n11659340.md#1" target="_blank">骆克仁：谁的脑子被驴踢到了？</a><br></h3><a href="https://github.com/fwwipt2046/djy/blob/master/gb/19/11/15/n11659340.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/11/photo6219976191188773153-1-600x400-1-150x120.jpg" align ="left"></a>七月流火，九月授衣。香港因“反送中”引起的抗争六月迄今，竟已逾五月。港警对市民的控制不断升级，香港朋友告诉我：“很多非本地同学准备离开香港，本地同学想移民，很多人一方面放不下香港，又要继续坚持下去抗争……”。
+
+香港新闻几已不忍卒睹，港警扔掷烟雾弹，示威者戴着口罩、面具仓皇躲避，中大校园宛如战场，校方宣布学期结束.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月16日 7:49 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/fwwipt2046/djy/blob/master/gb/19/11/15/n11659058.md#1" target="_blank">周晓辉：所背黑锅未卸 习挺港警自添新债</a><br></h3><a href="https://github.com/fwwipt2046/djy/blob/master/gb/19/11/15/n11659058.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/11/190718094559100699-600x400-1-150x120.jpg" align ="left"></a>11月14日，大陆各大媒体均在头条刊登了正在巴西开会的习近平对当前香港局势的严厉表态，其提出了“三个严重”、“三个坚定支持”和“三个决心”，而这样的表态前所未有。
 
 习近平称，“香港持续发生的激进暴力犯罪行为，严重践踏法治和社会秩序，严重破坏香港繁荣稳定，严重挑战‘一国两制’原则底线。止暴制乱、恢复秩序是香港当前最.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月16日 5:03 AM			</td></tr>
@@ -67,13 +70,5 @@
 是鸡鸣狗盗的市井无赖
 是贪婪无理性的赌徒......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月14日 3:23 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/fwwipt2046/djy/blob/master/gb/19/11/13/n11653743.md#1" target="_blank">夏林:《人民日报》的文章告诉了国人什么真相</a><br></h3>中共喉舌《人民日报》，在11月8日美国国务卿蓬佩奥发表对柏林墙倒塌30周年纪念讲话后，刊登了一篇署名“钟声”的文章，对蓬佩奥狠批了一番。文章一开头就到对蓬佩奥有三个不满：一个是“手里拎着一根意识形态大棒，恨不能走到哪里都耍一套污蔑、抹黑（中共）的把戏”；第二是“他一再肆意攻击中国政治制度，蓄意渲染所谓?‘中国威胁’”.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月14日 2:51 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/fwwipt2046/djy/blob/master/gb/19/11/13/n11652423.md#1" target="_blank">海网：玩自焚者实自焚已</a><br></h3>天安门自焚①怎演戏？真相揭开引人思议。
-中共是否一直这样，栽赃嫁祸乃其惯技？
-但现仍有蒙在鼓里，也有反对真相怀疑。
-再坏也不会那么坏，再说谁甘愿烧自己？
-中共邪灵本非人类，邪恶超人想像领域。
-今在香港上演续集，现代化治理也破题。
-二〇一九十月十一，暴力镇压再度升级。
-四中全会末日方针，鸡血打的特首脑溢。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月13日 2:58 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/fwwipt2046/djy/blob/master/gb/news392.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/fwwipt2046/djy/blob/master/gb/news392_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/fwwipt2046/djy/blob/master/gb/news392_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/fwwipt2046/djy/blob/master/gb/news392_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/fwwipt2046/djy/blob/master/gb/news392_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/fwwipt2046/djy/blob/master/gb/news392_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/fwwipt2046/djy/blob/master/gb/news392_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/fwwipt2046/djy/blob/master/gb/news392_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/fwwipt2046/djy/blob/master/gb/news392_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/fwwipt2046/djy/blob/master/gb/news392_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/fwwipt2046/djy/blob/master/gb/news392_2.md#1">下一页</a></h3></td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/fwwipt2046/djy/blob/master/gb/news392.md#1<br><a href="https://github.com/fwwipt2046/djy/blob/master/gb/news392.md#1"><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fwwipt2046/djy/blob/master/gb/news392.md%231" title="分享本文章"></a><br>原文地址： <a href="http://www.epochtimes.com/gb/news392.htm">http://www.epochtimes.com/gb/news392.htm</a>    （国内需<a href="https://git.io/JesJV">下载翻墙软件</a>才能访问）</p>
