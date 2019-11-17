@@ -27,14 +27,18 @@
 1.中共特战部队军人惊现港街头 与港人被自杀
 11月16日下午，中共驻港部队官兵公然在香港街头“快闪”，引发舆论大哗。更令人震惊的是，这些人中有中共特战部队的军人。海外媒体人士表示，特战部队军人出现在香港，让人联想他们与香港反送中运动以来200多香港年轻人被自杀的关系。
 .........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月17日 9:35 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/fsefc264/djy/blob/master/gb/19/11/17/n11661322.md#1" target="_blank">理大保卫战 港生以汽油弹击退装甲车</a><br></h3><a href="https://github.com/fsefc264/djy/blob/master/gb/19/11/17/n11661322.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/11/photo_2019-11-17_12-44-14-150x120.jpg" align ="left"></a>当地时间周日（11月17日）晚，香港理工大学尖东桥上，一辆防暴警装甲车向抗议的人群冲过来。示威者投之以汽油弹，装甲车瞬间变成火球，节节败退。
+
+尖东桥上，装甲车准备再次进攻雨伞阵，遭到抗争者反抗， 一部装甲车着火，两部装甲车不得已均后退。
+
+
+
+
+
+责任编辑：程岗......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月17日 11:47 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/fsefc264/djy/blob/master/gb/19/11/17/n11660719.md#1" target="_blank">男子价值过万包裹丢失 快递公司只赔1500</a><br></h3>快递寄出近一个多月后，浙江的陈先生才接到快递公司工作人员的来电，他被告知他寄出的包裹确认丢失。近日，陈先生表示，包裹是为客户订做的机械齿轮，价值1.3万元，由于寄出时未保价，快递公司表示只愿意赔偿1500元，这令他难以接受。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月17日 12:27 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/fsefc264/djy/blob/master/gb/19/11/17/n11660778.md#1" target="_blank">广东智障女孩遭多次性侵 8个月内二次怀孕</a><br></h3>广东茂名信宜市，存在智力障碍问题的12岁女孩小文（化名）被曝多次遭性侵，8个月内怀孕两次，并两次进行流产手术。11月16日，小文的家属表示，小文在今年3月就曾遭性侵怀孕，不料10月份再遭性侵。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月17日 1:36 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/fsefc264/djy/blob/master/gb/19/11/17/n11660831.md#1" target="_blank">前男友用不雅照威胁 福州女大学生遭吞药自杀</a><br></h3>“我马上把你的不雅照放学校论坛！”“明天我就去调查你爸妈，给叔叔阿姨惊喜！”10月17日，在福建福州外语外贸学院读大四的小静（化名 ）收到前男友发来的威胁信息。28日，小静吞下200颗药片自杀，被发现时她全身抽搐、口吐白沫。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月17日 2:36 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/fsefc264/djy/blob/master/gb/19/11/17/n11661177.md#1" target="_blank">每日三退声明精选（2019/11/16）</a><br></h3>曾留学多年返回国内，有比较才知道透明的西方是充满人性的社会，而国内一切都是暗黑，在一党独裁专制下遍地腐败，道德全面堕落，根源就是这个党。现有身边明白人指点翻墙，特此声明，退出被拉入的所谓共青团和曾加入的所谓少先队。做中华儿女，不做马列子孙。天佑平安。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月17日 9:30 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/fsefc264/djy/blob/master/gb/19/11/17/n11661300.md#1" target="_blank">山雨欲来？港警称理工大学冲突为“暴乱”</a><br></h3>11月17日, 香港警方与抗议者在香港理工大学校园外爆发激烈冲突，警方称理工大学一带的暴力行为已达“暴乱程度”。这让外界担忧港府进一步升级威吓和警示，暗示可能在酝酿暴力镇压。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月17日 11:27 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/fsefc264/djy/blob/master/gb/19/11/17/n11661322.md#1" target="_blank">【理大护校行动】港生以汽油弹击退装甲车</a><br></h3>当地时间周日（11月17日）晚，香港理工大学尖东桥上，一辆防暴警装甲车向抗议的人群冲过来。示威者投之以汽油弹，装甲车瞬间变成火球，节节败退。
-
-
-
-责任编辑：程岗......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月17日 11:47 PM			</td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/fsefc264/djy/blob/master/gb/nscrw413.md#1<br><a href="https://github.com/fsefc264/djy/blob/master/gb/nscrw413.md#1"><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fsefc264/djy/blob/master/gb/nscrw413.md%231" title="分享本文章"></a><br>原文地址： <a href="http://www.epochtimes.com/gb/nscrw413.htm">http://www.epochtimes.com/gb/nscrw413.htm</a>    （国内需<a href="https://git.io/JesJV">下载翻墙软件</a>才能访问）</p>
