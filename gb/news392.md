@@ -28,9 +28,17 @@
 <tr><td><h3><a href="https://github.com/fsefc264/djy/blob/master/gb/19/11/15/n11658897.md#1" target="_blank">颜丹：香港警察开枪与美国公民持枪</a><br></h3><a href="https://github.com/fsefc264/djy/blob/master/gb/19/11/15/n11658897.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/11/15cfae61b8f0868f_ttl7dayywq___________ytfb-2-600x400-150x120.jpg" align ="left"></a>相比之下，美国人能持枪所展现的，恰是美国开国先父们博大开明、无私为公的胸怀。他们不仅敢接受人民的投票、评选，甚至还大大方方的把政府所掌控的武器——枪支递到人民的手中。他们敢用实际行动向人民宣告，“忍受不了就反抗吧，你们才是国家的主人”。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月16日 3:29 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/fsefc264/djy/blob/master/gb/19/11/15/n11658685.md#1" target="_blank">张林：中国的战乱、激战超限战及循环</a><br></h3><a href="https://github.com/fsefc264/djy/blob/master/gb/19/11/15/n11658685.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/11/191111100323100615-1-150x120.jpg" align ="left"></a>自从1911年辛亥革命以来，中国人就进入了战乱时代，一刻也没有停止过内乱、内战或武装对峙、超限战。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月16日 1:18 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/fsefc264/djy/blob/master/gb/19/11/15/n11657722.md#1" target="_blank">陈思敏：香港魔警冲击中港股市 中共自吞恶果</a><br></h3><a href="https://github.com/fsefc264/djy/blob/master/gb/19/11/15/n11657722.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/08/190826083903100311-150x120.jpg" align ="left"></a>香港警察11.11大三罢镇压在光天化日连开3枪，11.12防爆警察强攻中大校园枪声大作，港警如嗜血狂魔，香港股市连日重挫。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月15日 5:55 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/fsefc264/djy/blob/master/gb/19/11/15/n11657824.md#1" target="_blank">【名家专栏】教育下一代感恩而不是自命不凡</a><br></h3><a href="https://github.com/fsefc264/djy/blob/master/gb/19/11/15/n11657824.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/11/20191115_shouhuihsu_antifa_29408951026_5617966a3c_k-01-150x120.jpg" align ="left"></a>生活中有很多值得我们感恩的因素。培养感恩的习惯，练习以感恩之心看待生活，对我们每个人乃至全社会的福祉都是至关重要的。既然如此，为什么我们要教育下一代去做与之相反的事情——自命不凡、抱怨、憎恨和将自己视为受害者呢？
-感恩的理由
-我们感恩现在所拥有的生活，感恩人生所拥有的，而不是没有的。只要我们停下脚步反思，便会对我们.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月15日 5:16 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/fsefc264/djy/blob/master/gb/19/11/18/n11662172.md#1" target="_blank">理悟：君子不立危墙下</a><br></h3>
+
+猪年不吉闹猪瘟，猪荒惨烈从未闻。
+肉价攀超百分百，万品皆贵苦平民。
+鼠年未到噩耗到，鼠疫匆匆先登门。
+人心惶惶心无主，党妈捂盖是何因？
+百姓死活皆小事，党妈保命忙维稳。
+痴迷党妈梦当醒，天灭中共步步紧。
+老猪摔耙不捧场，耗子值年送鼠瘟。
+自古亡朝多败象，天灾人祸乱纷纷。
+打压异声彰血色，活摘器官.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月18日 9:16 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/fsefc264/djy/blob/master/gb/19/11/16/n11660374.md#1" target="_blank">李旭彤：挖掘五千年文明惊世宝藏?前言</a><br></h3>近代之前的中国与西方世界在相互隔离的状态下发展了几千年后，发展成了两个全然不同的社会，语言文字、文化、技术、建筑等所有方面看起来都全然不同。近现代以前的很长一段时间，西方都是用“神秘”这个词来形容中国，包含着难以理解、不可思议等含义。但是学术界、科学界并未对这种神秘背后的深层含义有更多的关注，人们多是以一种猎奇和表面现.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月18日 3:05 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/fsefc264/djy/blob/master/gb/19/11/16/n11660421.md#1" target="_blank">朱同：共产党没有能力领导中国</a><br></h3>最近，中共“战果辉煌”，在国内、成功遏制住了二师兄，把事实通胀宣传成了“应该担忧通缩”；十三个“坚持和完善”成功发布；又砸了好多佛像（包括道教的）；双十一又卖了几千亿假货；历史上首次消灭了“黑死病”；落实了“爱党教育”，号召人民“坚持爱党爱国爱社会主义相统一，祖国的命运与党的命运密不可分”，要求人民在爱祖国母亲之前必须.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月17日 5:50 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/fsefc264/djy/blob/master/gb/19/11/16/n11660419.md#1" target="_blank">金浴凤：香港</a><br></h3>流转金融港，干惹独裁狂；
