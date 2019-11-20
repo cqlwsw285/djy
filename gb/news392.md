@@ -15,7 +15,18 @@
 <tr><td><h3><a href="https://github.com/juwce2051/djy/blob/master/gb/19/11/18/n11664268.md#1" target="_blank">周晓辉：美国更改对习称谓 质疑中共合法性</a><br></h3><a href="https://github.com/juwce2051/djy/blob/master/gb/19/11/18/n11664268.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/11/USCC-600x400-150x120.jpg" align ="left"></a>从美国暗示中共是恐怖组织，到美国公开区分中共与中国、中国人，再到更改对习近平的称谓，质疑中共执政的合法性，以及针对中共在贸易、军事、科技、网络、人权等一系列举动看，美国正走在支持中国人民摆脱中共邪恶统治的道路上。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月19日 4:49 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/juwce2051/djy/blob/master/gb/19/11/18/n11663369.md#1" target="_blank">石铭：认清中共流氓本性 加速中共解体进程</a><br></h3><a href="https://github.com/juwce2051/djy/blob/master/gb/19/11/18/n11663369.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/11/GettyImages-1183112925-1-150x120.jpg" align ="left"></a>原中共中央政治局常委、中纪委书记尉健行的撰稿人王友群博士在《齐心协力推倒中共这堵墙》一文中这样描述香港抗争：“2019年6月香港反送中运动爆发以来，中共将过去20年在中国大陆迫害法轮功的各种流氓手段都搬到了香港。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月18日 6:56 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/juwce2051/djy/blob/master/gb/19/11/18/n11662711.md#1" target="_blank">陈思敏：美股新高 中共提振股市左支右绌</a><br></h3><a href="https://github.com/juwce2051/djy/blob/master/gb/19/11/18/n11662711.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2018/08/50fdaa74b58c00f98abf7a70c2f43079-150x120.jpg" align ="left"></a>中美第一阶段协议迟迟签不下来，但无碍美国股市11月15日三大股指集体收涨并均再创历史新高。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月18日 5:48 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/juwce2051/djy/blob/master/gb/19/11/17/n11661849.md#1" target="_blank">【名家专栏】希夫拒绝传唤举报人没有道理</a><br></h3><a href="https://github.com/juwce2051/djy/blob/master/gb/19/11/17/n11661849.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/US-POLITICS-CONGRESS-TRUMP-GettyImages-1174488627-150x120.jpg" align ="left"></a>美国众议院情报委员会（House Intelligence committee）主席、加州民主党人亚当·希夫（Adam Schiff） 最近针对川普（特朗普）总统的弹劾调查问题明确回应称，作为整个弹劾调查核心的那位匿名告密者不会在听证会上作证，因为他的证词将是“多余和不必要的”。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月18日 4:02 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/juwce2051/djy/blob/master/gb/19/11/20/n11668844.md#1" target="_blank">理悟：倒共烽火</a><br></h3>硝烟火光飞枪弹，
+港警围攻袭校园。
+育人静地成战场，
+共匪邪恶不堪言。
+为捍自由弃生死，
+年轻学子坚信念。
+寸步不让不退缩，
+何其壮烈感地天。
+中大理工港民挺，
+传送物质接人链。
+大陆学友伸援手，
+发声多多能量传。(注)......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月20日 7:33 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/juwce2051/djy/blob/master/gb/19/11/20/n11668421.md#1" target="_blank">T：愿荣光光临神州</a><br></h3>何以 黄土地 遭涂炭
 何以 华夏众 心黯然
 红魔 肆虐时 问苍穹 几度
