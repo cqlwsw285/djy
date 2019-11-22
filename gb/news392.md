@@ -23,6 +23,14 @@
 大纪元集团总裁唐忠表示，大纪元通过中英文多语种媒体及时、真实地把香港民众抵抗中共在香港的暴行传播到世界各地，包括美国政府、国会参众两院，中共尤其惧怕，所以频繁破坏大纪元。我们严厉谴责这.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月20日 9:30 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/wdlxhh2447/djy/blob/master/gb/19/11/20/n11669057.md#1" target="_blank">王易：鼠疫来了  审判江泽民还远吗</a><br></h3><a href="https://github.com/wdlxhh2447/djy/blob/master/gb/19/11/20/n11669057.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2013/08/1308121729572404-150x120.jpg" align ="left"></a>这些天，人们为香港人遭中共镇压而揪心外，另一个令人担心的新闻莫过于中国出现鼠疫的新闻了。原因是鼠疫的死亡率可高达100%，历史上在亚欧夺去了上亿人生命。不可一世的罗马帝国就是最后被鼠疫灭掉的。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月20日 9:21 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/wdlxhh2447/djy/blob/master/gb/19/11/20/n11668501.md#1" target="_blank">陈思敏：香港理大被围3日 学生展抗共暴政决心</a><br></h3><a href="https://github.com/wdlxhh2447/djy/blob/master/gb/19/11/20/n11668501.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/11/GettyImages-1183436590-e1574199598997-1-150x120.jpg" align ="left"></a>香港理工大学11月17日至19日遭港警重兵围攻，同时中共喉舌公然下指导应实弹射击，震惊国际舆论，引发高度关注。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月20日 7:20 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/wdlxhh2447/djy/blob/master/gb/19/11/22/n11673515.md#1" target="_blank">海网：中共偷袭反助大纪元</a><br></h3>九评发表十五年， 
+蒙面偷袭大纪元。 
+此次假扮勇武派， 
+四凶印场造火灾。 
+破坏捣乱三五番， 
+港警一一未破案。 
+自作聪明盖弥彰， 
+超限战祸乱香港。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月22日 3:43 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/wdlxhh2447/djy/blob/master/gb/19/11/22/n11673506.md#1" target="_blank">吐为快：妖共 世界再次认识你</a><br></h3>六四獍枭韬养凶，呆婊喝血变毒蚣;
 改面建设滋贪庸，渗透全球助恫恐;
 魔爪伸港掐自由，獠牙啮疆圆初梦;
@@ -76,6 +84,5 @@
 里外蒙骗耍流氓，贼眉鼠眼探风向。
 可晓特战特何处？扮恐反恐祸新疆。
 窝里横枪耗子扛，洞内没虎称天狼。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月20日 4:14 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/wdlxhh2447/djy/blob/master/gb/19/11/20/n11668328.md#1" target="_blank">梁京：“中国之治”是危及人类的恶治</a><br></h3>在香港危机难以收场的时刻，《纽约时报》又发表了有关新疆集中营的中共秘密文件，无疑对习近平自诩的“中国之治”投下了另一枚重磅炸弹。这些文件揭露的事实，对于珍重和向往自由的人来说，更加坚定了他们对“中国之治”是恶治的认知，但我也看到这样一个事实，那就是对于不少信仰“好死不如赖活”的中国人来说，这些秘密文件所揭露的黑暗事实.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月20日 4:02 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/wdlxhh2447/djy/blob/master/gb/news392.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/wdlxhh2447/djy/blob/master/gb/news392_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/wdlxhh2447/djy/blob/master/gb/news392_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/wdlxhh2447/djy/blob/master/gb/news392_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/wdlxhh2447/djy/blob/master/gb/news392_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/wdlxhh2447/djy/blob/master/gb/news392_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/wdlxhh2447/djy/blob/master/gb/news392_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/wdlxhh2447/djy/blob/master/gb/news392_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/wdlxhh2447/djy/blob/master/gb/news392_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/wdlxhh2447/djy/blob/master/gb/news392_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/wdlxhh2447/djy/blob/master/gb/news392_2.md#1">下一页</a></h3></td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/wdlxhh2447/djy/blob/master/gb/news392.md#1<br><a href="https://github.com/wdlxhh2447/djy/blob/master/gb/news392.md#1"><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wdlxhh2447/djy/blob/master/gb/news392.md%231" title="分享本文章"></a><br>原文地址： <a href="http://www.epochtimes.com/gb/news392.htm">http://www.epochtimes.com/gb/news392.htm</a>    （国内需<a href="https://git.io/JesJV">下载翻墙软件</a>才能访问）</p>
