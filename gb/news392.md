@@ -20,11 +20,24 @@
 <tr><td><h3><a href="https://github.com/yfkun2122/djy/blob/master/gb/19/11/20/n11669946.md#1" target="_blank">【名家专栏】中共在腐蚀美企 彭斯说得对</a><br></h3><a href="https://github.com/yfkun2122/djy/blob/master/gb/19/11/20/n11669946.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/11/GettyImages-1180681785-1200x800-150x120.jpg" align ="left"></a>2019年10月下旬，美国副总统迈克?彭斯（Mike Pence）对外表示，中共对美国的公司和企业产生了腐蚀性影响，他所说的是对的。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月21日 3:44 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/yfkun2122/djy/blob/master/gb/19/11/20/n11669411.md#1" target="_blank">周晓辉：美参院通过涉港法案 北京骑虎难下</a><br></h3><a href="https://github.com/yfkun2122/djy/blob/master/gb/19/11/20/n11669411.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/11/1003182344381160-600x400-150x120.jpg" align ="left"></a>美国如何与其盟友联合开启全球灭共模式，将是世人所瞩目的。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月21日 1:57 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/yfkun2122/djy/blob/master/gb/19/11/21/n11670461.md#1" target="_blank">袁斌：纵火《大纪元》印刷厂与恐吓记者</a><br></h3><a href="https://github.com/yfkun2122/djy/blob/master/gb/19/11/21/n11670461.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/11/fire-top-600x400-1-1-150x120.jpg" align ="left"></a>在香港媒体界，《大纪元时报》是一份为数不多有着相当影响力且转手率极高的独立中文报纸。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月21日 12:26 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/yfkun2122/djy/blob/master/gb/19/11/20/n11668863.md#1" target="_blank">王友群：香港越到最黑暗时刻越接近曙光</a><br></h3><a href="https://github.com/yfkun2122/djy/blob/master/gb/19/11/20/n11668863.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/11/1911170742222188-600x450-1-150x120.jpg" align ="left"></a>目前，香港正处在有史以来最黑暗的时期。
-
-但是，这是黎明前的黑暗。
-
-11月13日，波兰前副总理兼财长巴尔舍诺维奇，在美国民主基金会演讲谈到香港问题时，对香港人的勇敢，表达了由衷的钦佩。他鼓励香港人说，越到最困难时刻越有希望。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月21日 1:42 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/yfkun2122/djy/blob/master/gb/19/11/23/n11675718.md#1" target="_blank">云鹤天：天怒</a><br></h3>一国两制
+五十年不变
+庄严承诺
+从未想兑现
+中英声明
+党视一口痰
+二十年后
+实行双普选
+时间一到
+立马就翻脸
+上窜下跳
+搬石砸脚面
+凶相毕露
+屠城再上演
+老天震怒
+剿匪灭共产
+红霾散尽
+华夏复青天......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月23日 2:25 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/yfkun2122/djy/blob/master/gb/19/11/23/n11675648.md#1" target="_blank">莲园：调笑令?神州怎容恶魔祸</a><br></h3>华夏，
 华夏，
 古风悠悠神话。
