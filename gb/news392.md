@@ -19,8 +19,13 @@
 <tr><td><h3><a href="https://github.com/kcjam217/djy/blob/master/gb/19/11/22/n11674744.md#1" target="_blank">颜丹：近30万英国人的诉求说明了什么？</a><br></h3><a href="https://github.com/kcjam217/djy/blob/master/gb/19/11/22/n11674744.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/11/20191113010833166-150x120.jpg" align ="left"></a>当中共在墙内大肆散播如今香港之乱是暴徒作乱的消息时，墙外不少国家却在纷纷谴责港府林郑对“反送中”港民的暴力镇压。就在今年10月，英国人迪兰·库玛（Deeran Kumar）在Change.org上发起征签，要求英国内政部永久撤销林郑家人，包括其丈夫和两个儿子的英国国籍。
 
 库玛在向英国内政部递交的请愿书上写道，林郑.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月23日 4:51 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/kcjam217/djy/blob/master/gb/19/11/22/n11674262.md#1" target="_blank">王赫：中国人安全梦魇（3）</a><br></h3><a href="https://github.com/kcjam217/djy/blob/master/gb/19/11/22/n11674262.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2014/12/1412120744182534-150x120.jpg" align ="left"></a>纵观中共建政后的70年，无数的中国人或死于政治运动（含“大三年饥荒”的中共历次政治运动，杀人至少8000万），或尚未来到人世就被戕杀（强制计划生育，据《中国卫生统计年鉴2010》，1980年到2009年，人工引流产2.75亿例，实际数字更多），或死于“人祸”勾连之“天灾”（中共严控相关数据，70年死亡总数当以千万计）.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月22日 11:59 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/kcjam217/djy/blob/master/gb/19/11/22/n11673471.md#1" target="_blank">程晓容：国际风云印证《九评》精准论断</a><br></h3><a href="https://github.com/kcjam217/djy/blob/master/gb/19/11/22/n11673471.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/11/1911120304312188-150x120.jpg" align ="left"></a>《九评》关乎中国和世界。这部巨著能够帮助人们深入了解中国现当代史及共产主义运动，从而对中共的言行及动机做出清醒的判断。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月22日 4:45 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/kcjam217/djy/blob/master/gb/19/11/25/n11678848.md#1" target="_blank">慧声：诗三首</a><br></h3>大纪元好
+
+大笔如椽九评出世地动天惊
+纪事载文讲清真相民众唤醒
+元始声明三退潮起澎湃汹涌
+好人平安善恶必报天灭中共......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月25日 2:11 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/kcjam217/djy/blob/master/gb/19/11/25/n11678674.md#1" target="_blank">【投书】曝光中共治理下大陆的黑暗</a><br></h3>在高喊依法治国的今天，大陆各个部门表现出的怪像已经彻底无药可救，具体表现为每一个阶层每一个行业几乎没有一个敢说真话的人，敢说真话的都会被看成另类或者加以孤立，不管在何岗位何环境不能有与中共邪党不同的声音，人人活着没有安全感，没有幸福感，作为大陆一名从事法律行业二十多年的中国人，我想我有义务站出来把真实的大陆告诉世人，让.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年11月25日 2:01 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/kcjam217/djy/blob/master/gb/19/11/25/n11678104.md#1" target="_blank">理悟：贺美国参众两院通过《香港人权与民主法案》</a><br></h3>天降神器缚红魔，
 携雷带闪魔胆破。
 大祸临头如何好？
